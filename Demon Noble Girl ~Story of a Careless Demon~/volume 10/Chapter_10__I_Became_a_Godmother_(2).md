@@ -1,0 +1,165 @@
+[Back](./readme.md)
+
+
+
+<?xml version="1.0" encoding="utf-8"?> <!DOCTYPE html PUBLIC "-//W3C//DTD XHTML 1.1//EN" "http://www.w3.org/TR/xhtml11/DTD/xhtml11.dtd">
+
+# Chapter 10: I Became a Godmother (2)
+
+Ten days passed since the birth of Vio’s baby, Amelia.
+
+It was the first time for me to be the godparent of a human, as well as the first time for me to be the godparent of a child born to someone close to me in this world.
+
+Naming my followers was also moving in its own way as I felt the connection between our hearts, but naming a human was different in its own way.
+
+I heard that sparkling “nice names” were becoming popular in this world as well, so I was relieved that I didn’t go out of my way to give him a funny name.
+
+After all, a name like \[King\], \[Kaiser\], or \[Queen\], which sounded like you were trying to usurp the throne in a country ruled by a King, would never be accepted, would it?
+
+On the contrary, the character you use at the end of a sentence could be ‘.’, ‘!’ or ‘?’. How could anyone simply accept such a thing? The government officials probably had a tough time out of that as well.
+
+“Look, Amelia, it’s Yuru-sama.”
+
+“Ah.”
+
+Vio, who has already returned to active duty and was already dressed in her uniform, shows me Amelia in her arms. She could use healing magic, so she could recover quickly, but was that really necessary?
+
+But babies were cute.
+
+Amelia had black hair, just like Vio’s. Her eyes were bright, just like her father’s. Her face is resembled Vio, so she was sure going to be a beautiful girl in the future.
+
+Moreover, for some reason, I have not experienced getting affection from babies or animals, but when I approached Amelia, she would extend her hand with a big smile on her face. She was really adorable.
+
+But… wasn’t she too cute?
+
+She was only 10 days old…? A baby of this age should be in the state of Monkey-San where they would only start to look cute, right? She’s been like this for just a few days, you know?
+
+“Yuru-sama was cute from the moment she was born, but now that Yuru-sama has given her healing and a name, she has also become so healthy.”
+
+“…I see.”
+
+Could it be because of that?
+
+The umbilical cord got caught around her neck when she was born, and she was born in a state of suspended animation, so I applied a lot of healing magic, not just the special Last Elixir class, but a level that would be as if she consumed the leaves of the World Tree, and I had a feeling that her magic power had changed quite a bit.
+
+I “named” her on top of it, and the altered magical power became completely fixed.
+
+The quality of the magical power was not like that of a human, but more like that of a demon or a spirit.
+
+But this, Amelia’s magical power… was somewhat familiar to me….
+
+“Vio, let me say hello, Cyril, as well.”
+
+“Yes, Lia-sama.”
+
+As the mother approached with Cyril in her arms, Vio and I put Cyril and Amelia in the same crib fence.
+
+Co-sleeping… wait, was that okay? Cyril may be a baby, but he’s a one-year-old and strong to a certain extent, right? What if he hits her accidentally?
+
+“Duh.”
+
+“…”
+
+Cyril was curious about the baby who was smaller than him.
+
+Amelia, who was lying on her back, stared at Cyril with big eyes, and Cyril’s eyes, which were not afraid of Rinne, started to wander in the air as if he were slightly intimidated.
+
+“…?”
+
+“…”
+
+Suddenly, Cyril slumped to his knees, his body falling forward as if on his knees, and Amelia was tapping his head with her tiny hands.
+
+It was like…I felt like I was witnessing the moment that determined their future relationship.
+
+Stay strong, little brother.
+
+“Oh my goodness, you two are such good friends.”
+
+Was that all you could think of, as his biological mother?
+
+“As for me, I would like Amelia to serve Cyril-sama as his attendant…”
+
+That seems kind of nice.
+
+“Oh, Amelia-chan is Vio’s daughter, but she is also a baroness. Since they are so close in age, I’d like them to be friends, not as master and servant.”
+
+“Yes, but that would look like we want to be involved in this Ducal House as a family. The decision will be made by Amelia, though.”
+
+That means, Cyril in the future will have a beautiful little girl, a childhood friend, who every morning will be…
+
+\[Cyril-sama, please wake up. You’re such a lazy sleeper.\]
+
+\[I’ll wake up if you give me a kiss on the cheek\]
+
+\[Oh, my, what are you saying, I can’t listen to that.\]
+
+So, you live a fulfilling life, like… I would ask them to explode, but having caught a glimpse of their relationship, though, from the looks of it, all I could say was good luck to my little brother, who would probably have a hard time in the future.
+
+Amelia seemed to have many attributes added to her, but I wonder if she would be okay with it? She was a human, so I doubt she would do anything reckless, but I was a little worried.
+
+“Vio-sama, please let me hold her as well.”
+
+“Me too…”
+
+“Eh? But be careful, she’s not fully grown yet. Do you know how to hold her?”
+
+Fannie and Tina, who were watching behind me, even wanted to hold Amelia in their arms. What? Why? Why would you two, who were demons innately, want to hold a human baby in your arms?
+
+Well, I wasn’t certain if it really mattered whether they were demons or not, Vio was more than happy to teach them how to hold the baby.
+
+Fannie was very familiar with holding Amelia in her arms, and Tina was very nervous holding Amelia in her arms as if she were handling something fragile, which I could not imagine from her normal personality.
+
+I quietly approached them and asked them why they were doing this, and both Tina and Fannie tilted their heads in wonder.
+
+“You made this baby our family, didn’t you?”
+
+“This baby smells just like Yurushia-sama, you know?”
+
+“…”
+
+What? Did I really do it? I thought I felt like Amelia’s magic power was somewhat similar, but it seems like it, she had been tainted by my magic power instead.
+
+…It was still okay. Amelia was just an ordinary pretty girl with a slightly different magic power.
+
+Since I returned to this world, I stationed some of my employees’ Greater Demons in important places around the country.
+
+Of course, in this mansion as well. They were working under Tina and Fannie’s command, as my maids, and were able to take human forms and those who were good at the art of concealment, like vampires as their dependents.
+
+One day, while Vio was moving around the courtyard with Cyril and Amelia in the stroller, he saw them kneeling.
+
+…What are you guys doing?
+
+No matter how much our magical powers resembled each other, wouldn’t it be a very strange situation for a demon to kneel to an ordinary human who didn’t even have a contract with them?
+
+“Yurushia.”
+
+“…Rinne?”
+
+As I was stunned by such a scene, Rinne lined up next to me, calling out to me, and spilling out a heavy voice as we watched the same scene.
+
+“I know you have feelings for humans, but why did you give that baby \[The Blessing of the Demon God\]? Because of the similarity in the quality of their magical power, the demons recognize them as your top dependents.”
+
+“…What?”
+
+I messed up.
+
+Somehow, I could not tell whether it was accidentally or not, but as a result of all the things I did, I gave Amelia the \[Demon God’s Blessing\] as the \[Demon God\].
+
+“Rinne, what should I do…”
+
+“I can’t help it. You really have a difficult personality, don’t you?”
+
+From behind Rinne, who was looking at me with a dumbfounded look on her face, Geas, in her smiling old butler’s outfit, opens his mouth.
+
+“Hohoho. Rinne-sama, who says so, gave \[Blessing of the Beast\] to Cyril the other day, didn’t you?”
+
+“”…””
+
+Apparently, it wasn’t all Amelia’s fault that the demons were kneeling to me. When I stared at her, Rinne quietly averted her gaze.
+
+It seems that Rinne had become quite accustomed to the human world…
+
+
+[Back](./readme.md)
+
