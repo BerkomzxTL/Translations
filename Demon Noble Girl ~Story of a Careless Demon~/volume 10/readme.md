@@ -19,6 +19,12 @@ BerkomzxTL Note:
 - Edited some spellings to align with other translations
 - Merged the split up chapters
 
+For those wondering how this hooks into pre-existing translations on NovelUpdates....
+
+- Based on the actual wn, volume 9 technically ends on the release marked ["v9c208"](https://thecenttranslations.wordpress.com/2021/04/22/chapter-208-volume-9/)
+- Volume 10 therefore begins on "v9c209"
+- Also based on NovelUpdates, V10 has been completely translated (except for chapter 15, which I think was accidentally skipped), meaning that volume 10 ends on ["c252"](https://fanstranslations.com/novel/demon-noble-girl-story-of-a-careless-demon/chapter-252/)
+
 
 # Table of Contents
 
