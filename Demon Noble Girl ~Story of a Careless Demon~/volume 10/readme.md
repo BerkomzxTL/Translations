@@ -12,6 +12,14 @@ Volume 10
 
 raw: https://ncode.syosetu.com/n5520de/?p=2
 
+<br/>
+BerkomzxTL Note:
+
+- I believe Fans Translations missed chapter 15, so I translated it
+- Edited some spellings to align with other translations
+- Merged the split up chapters
+
+
 # Table of Contents
 
 [Chapter 1: Let's Dance (1)](./chapters/10_1.md)
