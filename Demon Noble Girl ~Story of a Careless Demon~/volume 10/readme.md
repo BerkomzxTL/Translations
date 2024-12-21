@@ -1,12 +1,7 @@
-```
-Demon Noble Girl ~Story of a Careless Demon~  
-
-Volume 10
-
+# Demon Noble Girl \~Story of a Careless Demon\~ Volume 10
 by Spring Days 
   
 TL/Editor: Fans Translations/Berkomzx 
-```
 
 # Table of Contents
 [Chapter_1__Let's_Dance_(1)](./Chapter_1__Let's_Dance_(1).md)
