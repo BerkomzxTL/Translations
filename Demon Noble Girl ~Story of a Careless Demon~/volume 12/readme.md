@@ -1,12 +1,7 @@
-```
-Demon Noble Girl ~Story of a Careless Demon~  
-
-Volume 12
-
+# Demon Noble Girl \~Story of a Careless Demon\~ Volume 12
 by Spring Days 
   
 TL/Editor: Berkomzx 
-```
 
 # Table of Contents
 [Chapter_1__Abyss](./Chapter_1__Abyss.md)
