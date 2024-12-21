@@ -1,0 +1,215 @@
+[TOC](./readme.md)
+
+[Chapter_5__I_Became_a_Villainess_(3)](./Chapter_5__I_Became_a_Villainess_(3).md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Chapter_7__Have_I_Become_Engaged__(2)](./Chapter_7__Have_I_Become_Engaged__(2).md)
+
+
+
+<?xml version="1.0" encoding="utf-8"?> <!DOCTYPE html PUBLIC "-//W3C//DTD XHTML 1.1//EN" "http://www.w3.org/TR/xhtml11/DTD/xhtml11.dtd">
+
+# Chapter 6: Am I Engaged? (1)
+
+The Sylber Kingdom operates under a Queen as a rule, but the Queen was not chosen from among the royal family.
+
+In the Church, the queen is revered as a goddess, and the next queen is nominated from among all the people by the Oracle of the previous queen.
+
+The royal family existed to be the “Husband” of the chosen Queen, and the royal family who became the Husband of the Queen would administer the affairs of state on behalf of the Queen.
+
+The current Queen was chosen by the previous Queen more than 20 years ago, and became Queen by marrying a prince who was 20 years older than her and was most favored by the nobles at that time.
+
+The prince was assassinated within two years of the marriage by a fanatic follower because the prince had begun to disparage the queen by launching new policies one after another.
+
+The Royal family immediately tried to appoint the next prince to the Queen, but the Queen, who was already revered as the \[Goddess\] of the people, disliked it and decided to take the wives of the nobles and those of royal blood that accompanied her as her adopted children, especially those who were considered to have strong royal blood.
+
+Two princes and two princesses were adopted.
+
+In addition, the royal women who had the blood of the powerful Queen were often gifted with special talents, which made them convenient for marrying into other royal families and internally influencing those families.
+
+All those who were chosen as Queens had special talents. The present Queen’s “special ability” was not flashy, but it was greatly welcomed by all the people, especially by the nobles.
+
+The ability was to “awaken other people’s talents”.
+
+According to the Queen, the human soul had the same capacity, but there was a “difference” in the “experience value” that each individual inherited from a previous life.
+
+The Queen’s ability is to awaken the “experience” as a talent through effort, however, the Queen’s ability awakens this talent that reflects the personality of the individual without requiring any effort.
+
+The four Royals adopted this time were those who, according to the Queen, had \[special previous lives\] and had a particularly high level of soul experience.
+
+The first Princess Ester was only four years old when she received the Queen’s power and developed her special talents.
+
+Because of her abilities, Ester was loved by most men and received patronage at all ages.
+
+Although her abilities were generally kept secret, the Queen said that her talent was \[Charm\].
+
+He praised Ester for her ability to be useful both as a consolidator of territories and as a disruptor of other countries.
+
+Seeing this, Axel, now the second prince, became jealous.
+
+If Ester’s abilities were to be extended throughout the land, there was a possibility that Ester would be chosen as the next Queen, not as a child like his other siblings who had lost the love of their adoptive mother to their younger sister.
+
+If that happens, he, as the older brother, could not be the Queen’s husband. Although it was legally possible, Axel’s pride would not allow him to have this selfish and foolish sister by his side as his Queen.
+
+Therefore, Axel envied her.
+
+Outwitted by his sister, Axel made up his mind to rob everything who tried to take something from him, and his abilities blossomed at the hands of the Queen, who sensed this.
+
+Axel gained the \[ability to steal\] an ability that takes away from others. As a secondary ability to use it, he also received \[ability appraisal\].
+
+Axel tried to use this power to take away Ester’s ability, but his power was limited by the Queen who awakened it.
+
+First, he could not take away the ability unless it was a definite ability that he had detected.
+
+Second, it avoids robbing those with soul power above a certain level.
+
+Third, instead of robbing the target by touching it directly, rob it from a distance without being noticed by others by using magic in combination.
+
+Axel was upset that this prevented him from robbing Ester of her abilities, but he was told that it was a consideration to ensure that his soul was not in danger by attempting to rob her forcefully, and he was relieved of his resentment toward his sister by being recognized by the Queen.
+
+Ester had said since she was a child that she wanted to be loved.
+
+According to the Queen, this was a \[desire\] from her previous life, and Axel also felt a \[desire\] that seemed to come from the depths of his heart.
+
+As if pushed by the voice in his heart that whispered “I want to be strong” and “I wish to steal,” Axel stole abilities from others and grew stronger.
+
+The other two siblings also seemed to have acquired some abilities late in life, but they were too docile to disclose their abilities out of embarrassment, and even though Axel could not see what the Queen had performed. Axel looked down on them and smiled affectionately, and as his power increased, he naturally started to look down on everyone.
+
+One day, Axel was asked by the Queen to study abroad in the “Holy Kingdom,” the apple of the Church’s eye, and to get engaged to a “Saint” from the Holy Kingdom.
+
+The Holy Kingdom, with which they have had diplomatic tension for some time, and with which they have fought several times in the past, had been involved in various schemes from behind the scenes, but this was the first time for them to make such a blatant move.
+
+The Saint had apparently been missing for two years, but upon her safe return to the Holy Kingdoms, she had shown them that she could destroy the plans of the Church in the blink of an eye.
+
+The presence of that Saintess alone considerably increased the difficulty level of the Church’s \[missionary\] work in the Holy Kingdom.
+
+The Queen considered the saint to be a danger, but at the same time, she acknowledged her ability.
+
+She instructed Axel to take away all abilities from the Saint even if he had to release the restrictions on him within the Holy Kingdoms, and the Queen also ordered Axel to take the Saint as \[the next Queen\] and cage her if he liked her.
+
+And in the Holy Kingdom, where Axel studied abroad, he met his first “woman” whom he considered his equal.
+
+＊＊＊
+
+“Now, then, the Devil’s Council will now convene.”
+
+The lively demons clapped their hands. Rinne, the only one who wasn’t in a good mood, was relieved to be released from babysitting Cyril for the first time in a long while and let loose, a legendary demonic beast feared by all mortals.
+
+“I’m sure you all know that the second prince Axel and the first princess Ester (lol) have arrived from the Sylber Kingdom.”
+
+“Is that so?”
+
+“Onza-kun, don’t tell me that you forgot about that country?”
+
+“I don’t think there is anyone who doesn’t know, but in short, it’s the Church that provided the rebel army with the technology to create that demon and spirit chimera.”
+
+“I don’t remember such a thing.”
+
+“Onza-kun, you’re a pain in the neck.”
+
+“I’m sorry, my lady.”
+
+“That alone is a religious country that seems to be fighting with demons and spirits at the same time, but now we have found out an extraordinary fact from Axel.”
+
+“Fannie, please explain.”
+
+“He probably has an \[Ability Steal\] type of skill!”
+
+“Thanks. We’ll start the meeting to see what we can do with him. Please give me your opinion.”
+
+\[Kill\]
+
+“…It’s unanimous.”
+
+I knew it, but this simply didn’t turn into a meeting. Even Onza-kun, who was so sloppy that it was hard to believe he was a demon, said it without hesitation, not to mention Geas, whose soul was pitch black even though he was a former human being.
+
+It was understandable because that Axel had committed \[Taboo\], which one should never commit.
+
+The chimera production by the Church itself was another case of “taboo,” but both demons and spirits are responsible for their own actions, or rather, they have a dry, “it’s their own fault for being weak” mentality, so those of us who were not directly involved in the production of the chimera have remained silent on the matter.
+
+Firstly, there are five “deadly sins” that “people” or rather, “living things” with life must not commit.
+
+These were not the “sins” created by some religion to warn people, but the “sins” that the world itself considers taboo.
+
+First Taboo: \[No one shall revive a lost life.\]
+
+Second Taboo: \[No one shall be allowed to violate the soul.\]
+
+Third Taboo: \[No one shall create a living being from nothing.\]
+
+Fourth Taboo: \[No one shall alter the world.\]
+
+Fifth Taboo: \[No one may alter time.\]
+
+This was not said by anyone, but it was a clear statement of what demons and spirits would understand in some way. I do feel like I’m perpetrating something sinister, but I’m also an actual demon, so it’s not a problem.
+
+In essence, this should not be meddled with by people because this was the domain of the demons and spirits that kept the world in cycle in motion and maintained it.
+
+If a living creature were to do this, the demons and spirits would cease to exist and disappear from that world. And since a creature with a life span would be so vulnerable, if those beings were to perish, the world itself would collapse.
+
+Axel’s \[Ability Steal\] would fall under the second Taboo.
+
+“…So, how strong is that guy’s \[Ability Steal\]?”
+
+“That’s what We know but haven’t fully verified yet.”
+
+I sigh with a troubled look on my face at Rinne’s words, who had finally recovered from his state of lethargy.
+
+I felt angry, but I was hesitant to do my best to destroy him.
+
+There were stages in the \[Ability Steal\] system, and if it was in the early stages, it wasn’t a big sin.
+
+The stages of \[Ability Steal\] go like this.
+
+The first stage is to take in some of the power by killing another living creature and feeding on its flesh and blood.
+
+This was not a problem because this was a normal life activity performed by eating other living creatures. It was about to be bad, though, because it touches the fourth Taboo of intentionally exterminating a number of organisms.
+
+The second stage involved taking a part of the soul from the flesh and blood of others and turning it into one’s own power.
+
+Vampires would be a good example. It touches the second Taboo but was not severe enough because, even if it was soul-related, it only involves a small percentage of the soul, and as a result, the vampire was considered a \[human\] and and also a \[demon\].
+
+The third step was to rewrite the information on the soul and take away its abilities.
+
+Yes, if one reached this point, then they would be out. Doing so would forcibly strip the information imprinted on the soul, and if the soul is damaged by that, it will not circulate in the world until it is healed.
+
+If Axel was really stealing abilities directly from the souls of others, it would be a terrible thing.
+
+Some say it would be fine if it wasn’t discovered, but if that fact were known to a demon or spirit with a certain level of intelligence, it would turn all the demons and spirits in that world against them.
+
+To be more specific, the highest-ranking demons of my class and Rinne’s class, and even the \[spirit kings\] that surpass even the great spirits, would attack Axel alone in order to destroy him.
+
+There were various ranks of spirits, and the \[Great Spirit\], which was equivalent to the \[Great Demon\], that governed volcanic eruptions, typhoons and tornadoes. The \[Spirit Kings\] were on a different level.
+
+The \[Spirit King\] of light and dark presides over day and night.
+
+The \[Spirit King\] of fire, water, and wind governs the seasons of this world.
+
+In other words, \[Spirit Kings\] could be called true “Gods” for the living beings in this world.
+
+They existed from the beginning of life, so they would be in the same class with me and Rinne, a \[Devil\] and \[Demon Beast\].
+
+Well, I wouldn’t have the time to pick a fight to those beings that I didn’t even know where they were.
+
+In short, if such beings found out out, the Holy Kingdom where Axel was staying would also be dragged into the mess. Huh? There would be no reason to keep Axel alive, it seems.
+
+But as the princess of the Holy Kingdom, it would be bad for diplomacy with other countries to kill him immediately.
+
+In conclusion…I suppose it would be best to ask Axel and the others to return to their home country and inform the spirit side over there.
+
+“And so, I have decided to continue harassing Axel and the others with all my might.”
+
+“…Yurushia really has a difficult position, huh?”
+
+You didn’t have to point it out, Rinne.
+
+“Oh, right, my Lady. you have received a formal invitation to dine with people from the Church side.”
+
+“…”
+
+Tina, you forgot until this moment, didn’t you?
+
+This time it was not a social call, but a serious invitation from Axel? What do you think of this timing?
+
+
+[TOC](./readme.md)
+
+[Chapter_5__I_Became_a_Villainess_(3)](./Chapter_5__I_Became_a_Villainess_(3).md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Chapter_7__Have_I_Become_Engaged__(2)](./Chapter_7__Have_I_Become_Engaged__(2).md)
+
