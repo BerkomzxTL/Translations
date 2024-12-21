@@ -10,6 +10,7 @@ Volume 10
   
  TL/Editor: Fans Translations/Berkomzx 
 
+raw: https://ncode.syosetu.com/n5520de/?p=2
 
 # Table of Contents
 
