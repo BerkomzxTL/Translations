@@ -1,5 +1,7 @@
 # BerkomzxTL Translations
 Just picking up whatever I feel like, probably only dropped series that I find interesting
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
+
 # Titles
 - Demon Noble Girl \~Story of a Careless Demon\~ (Volumes 10, 11, 12, Side Stories)
