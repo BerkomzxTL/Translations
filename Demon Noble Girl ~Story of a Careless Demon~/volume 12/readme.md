@@ -12,6 +12,8 @@ Volume 12
 
 raw: https://ncode.syosetu.com/n5520de/?p=2
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
+
 # Table of Contents
 
 [Chapter 1: Abyss](./chapters/Section0001.md)
