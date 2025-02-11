@@ -610,14 +610,14 @@ to speak, and pressed my throat.
 
 "...Elsreine, something happened to you?"
 
-She shook my head to answer, but no sound came out.  
+She shook her head to answer, but no sound came out.  
 She tried to speak, but could only exhale.  
 Confused, she repeated it several times, trembling with anxiety, and
 Fenela asked, seeing this,
 
 "Perhaps your voice...is gone?"
 
-Nodding,Reine swayed her gaze in agitation. Fenela stared blankly at
+Nodding, Reine swayed her gaze in agitation. Fenela stared blankly at
 Reine, her face contorted as she shook her head.  
 Then, she hugged Reine,
 
