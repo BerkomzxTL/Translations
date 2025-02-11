@@ -2,7 +2,7 @@
 
 
 
-# Chapter 350 - Magical Girl Magical☆Berry CDN Extra Edition ~Her Majesty's Magnificent Everyday Life~
+# Chapter 350 - Magical Girl Magical☆Berry CDN Extra Edition \~Her Majesty's Magnificent Everyday Life~
 
 AN
 
