@@ -2,7 +2,7 @@
 
 
 
-# Chapter 331 - Super Galaxy Queen☆Krischeria ~The beloved princess with a strong destiny finds happiness in a kind world~
+# Chapter 331 - Super Galaxy Queen☆Krischeria \~The beloved princess with a strong destiny finds happiness in a kind world~
 
 AN
 
