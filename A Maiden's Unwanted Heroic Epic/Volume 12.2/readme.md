@@ -61,7 +61,7 @@ _TN: BerkomzxTL_
 
 [Chapter 330 - Simulation Game Style Country Explanation](./chapters/Section0020.md)
 
-[Chapter 331 - Super Galaxy Queen☆Krischeria ~The beloved princess with a strong destiny finds happiness in a kind world~](./chapters/Section0021.md)
+[Chapter 331 - Super Galaxy Queen☆Krischeria \~The beloved princess with a strong destiny finds happiness in a kind world~](./chapters/Section0021.md)
 
 [Chapter 332 - Crescent Moon at Dawn 1 (Important Notice)](./chapters/Section0022.md)
 
@@ -99,7 +99,7 @@ _TN: BerkomzxTL_
 
 [Chapter 349 - Charm End](./chapters/Section0039.md)
 
-[Chapter 350 - Magical Girl Magical☆Berry CDN Extra Edition ~Her Majesty's Magnificent Everyday Life~](./chapters/Section0040.md)
+[Chapter 350 - Magical Girl Magical☆Berry CDN Extra Edition \~Her Majesty's Magnificent Everyday Life~](./chapters/Section0040.md)
 
 [Chapter 351 - Krische's Krische: Morning (Important Announcement)](./chapters/Section0041.md)
 
