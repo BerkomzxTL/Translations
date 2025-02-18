@@ -1,6 +1,6 @@
 # Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   
-3 Volumes
+Volumes 1-3
 
 _Author:_ _Iroha (彩帆)_
 
