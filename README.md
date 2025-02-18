@@ -8,3 +8,5 @@ Just picking up whatever I feel like, probably only dropped series that I find i
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
   - Side Heroine Protect
 - A Maiden's Unwanted Heroic Epic (Chapters 311-357)
+- Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
+  
