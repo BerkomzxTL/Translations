@@ -21,3 +21,8 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 
 # Table of Contents
 
+[1・Welcome to SSO](./chapters/Section0001.md)
+
+[2・Witches Take Priority Over Heroes](./chapters/Section0002.md)
+
+[3・Language Barrier](./chapters/Section0003.md)
