@@ -1,5 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0002.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0002.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0004.md)
 
 
 # 3・Language Barrier
