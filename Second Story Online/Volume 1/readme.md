@@ -26,3 +26,9 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [2・Witches Take Priority Over Heroes](./chapters/Section0002.md)
 
 [3・Language Barrier](./chapters/Section0003.md)
+
+[4・First Battle](./chapters/Section0004.md)
+
+[5・Beware of Scams](./chapters/Section0005.md)
+
+[6・Weeds Are Surprisingly Tasty](./chapters/Section0006.md)
