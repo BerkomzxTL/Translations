@@ -32,3 +32,8 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [5・Beware of Scams](./chapters/Section0005.md)
 
 [6・Weeds Are Surprisingly Tasty](./chapters/Section0006.md)
+
+[7・First Familiar](./chapters/Section0007.md)
+
+[8・Laid-Back Owl](./chapters/Section0008.md)
+
