@@ -238,7 +238,7 @@ Basic Skills
   
 Unique Skills  
   
-\[Language: Hays Regional Language\], \[Status: Ente Kingdom Bradley
+\[Language: Heiss Regional Language\], \[Status: Ente Kingdom Bradley
 Viscount House\]  
 \[Camping\], \[Local Knowledge\]  
   
