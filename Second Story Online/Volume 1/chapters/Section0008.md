@@ -1,4 +1,5 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0007.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0007.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0009.md)
+
 
 
 
@@ -262,5 +263,6 @@ Unique Skills
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0007.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0007.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0009.md)
+
 
