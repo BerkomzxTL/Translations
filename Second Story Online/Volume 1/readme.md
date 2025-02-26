@@ -37,3 +37,6 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 
 [8・Laid-Back Owl](./chapters/Section0008.md)
 
+[9・I Finally Acquired Language Skills!](./chapters/Section0009.md)
+
+[10・The Night Is My World](./chapters/Section0010.md)
