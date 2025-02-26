@@ -9,4 +9,5 @@ Just picking up whatever I feel like, probably only dropped series that I find i
   - Side Heroine Protect
 - A Maiden's Unwanted Heroic Epic (Chapters 311-357)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
-  
+  - Second Story Online
+
