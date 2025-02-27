@@ -40,3 +40,9 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [9・I Finally Acquired Language Skills!](./chapters/Section0009.md)
 
 [10・The Night Is My World](./chapters/Section0010.md)
+
+[11・Black Cat-san, Please Make A Contract With Me](./chapters/Section0011.md)
+
+[12・A Little Ninja Appears](./chapters/Section0012.md)
+
+[13・Encountering A Comrade](./chapters/Section0013.md)
