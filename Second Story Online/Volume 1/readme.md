@@ -46,3 +46,7 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [12・A Little Ninja Appears](./chapters/Section0012.md)
 
 [13・Encountering A Comrade](./chapters/Section0013.md)
+
+[14・Let's Be Careful About Wasting Money](./chapters/Section0014.md)
+
+[15・Let's Role-Play](./chapters/Section0015.md)
