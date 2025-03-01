@@ -50,3 +50,9 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [14・Let's Be Careful About Wasting Money](./chapters/Section0014.md)
 
 [15・Let's Role-Play](./chapters/Section0015.md)
+
+[16・The Knight Was Actually An Old Man](./chapters/Section0016.md)
+
+[17・Witch and Knight](./chapters/Section0017.md)
+
+[18・The Village Chief's Desire](./chapters/Section0018.md)
