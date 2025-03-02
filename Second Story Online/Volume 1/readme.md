@@ -56,3 +56,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [17・Witch and Knight](./chapters/Section0017.md)
 
 [18・The Village Chief's Desire](./chapters/Section0018.md)
+
+[19・The Essence of a Role-Player](./chapters/Section0019.md)
