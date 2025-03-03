@@ -58,3 +58,7 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [18・The Village Chief's Desire](./chapters/Section0018.md)
 
 [19・The Essence of a Role-Player](./chapters/Section0019.md)
+
+[20・Where People Gather](./chapters/Section0020.md)
+
+[21・Like Minds](./chapters/Section0021.md)
