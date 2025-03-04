@@ -62,3 +62,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [20・Where People Gather](./chapters/Section0020.md)
 
 [21・Like Minds](./chapters/Section0021.md)
+
+[22・If It's Not Selling, Sell It Somewhere Else](./chapters/Section0022.md)
