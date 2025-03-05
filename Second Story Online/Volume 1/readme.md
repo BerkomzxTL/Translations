@@ -64,3 +64,7 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [21・Like Minds](./chapters/Section0021.md)
 
 [22・If It's Not Selling, Sell It Somewhere Else](./chapters/Section0022.md)
+
+[23・The Western Forest](./chapters/Section0023.md)
+
+[24・Nice To Meet You, Bandit-san](./chapters/Section0024.md)
