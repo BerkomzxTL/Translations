@@ -68,3 +68,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [23・The Western Forest](./chapters/Section0023.md)
 
 [24・Nice To Meet You, Bandit-san](./chapters/Section0024.md)
+
+[25・Let's Fight At Night](./chapters/Section0025.md)
