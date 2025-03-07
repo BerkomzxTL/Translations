@@ -70,3 +70,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [24・Nice To Meet You, Bandit-san](./chapters/Section0024.md)
 
 [25・Let's Fight At Night](./chapters/Section0025.md)
+
+[26・One Should Possess...](./chapters/Section0026.md)
