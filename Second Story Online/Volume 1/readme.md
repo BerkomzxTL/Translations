@@ -72,3 +72,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [25・Let's Fight At Night](./chapters/Section0025.md)
 
 [26・One Should Possess...](./chapters/Section0026.md)
+
+[27・Overcoming the Invisible Wall](./chapters/Section0027.md)
