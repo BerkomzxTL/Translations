@@ -74,3 +74,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [26・One Should Possess...](./chapters/Section0026.md)
 
 [27・Overcoming the Invisible Wall](./chapters/Section0027.md)
+
+[28・In the White Forest](./chapters/Section0028.md)
