@@ -76,3 +76,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [27・Overcoming the Invisible Wall](./chapters/Section0027.md)
 
 [28・In the White Forest](./chapters/Section0028.md)
+
+[29・Please Teach Me](./chapters/Section0029.md)

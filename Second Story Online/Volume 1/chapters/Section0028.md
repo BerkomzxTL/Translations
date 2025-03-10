@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0027.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0027.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0029.md)
 
 
 
@@ -175,9 +175,6 @@ Niru seems to know something, but he can't speak, so it's no use. If I
 go back to the forest to investigate, I'll just end up dying again.  
   
   
-  
-
-
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0027.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0027.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0029.md)
 
