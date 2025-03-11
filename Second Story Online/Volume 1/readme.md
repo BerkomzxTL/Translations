@@ -78,3 +78,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [28・In the White Forest](./chapters/Section0028.md)
 
 [29・Please Teach Me](./chapters/Section0029.md)
+
+[30・Help On A Whim](./chapters/Section0030.md)
