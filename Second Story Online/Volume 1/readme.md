@@ -80,3 +80,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [29・Please Teach Me](./chapters/Section0029.md)
 
 [30・Help On A Whim](./chapters/Section0030.md)
+
+[31・Dark Magic and Croquettes](./chapters/Section0031.md)
