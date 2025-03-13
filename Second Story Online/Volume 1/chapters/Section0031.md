@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0030.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0030.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0032.md)
 
 
 
@@ -70,13 +70,13 @@ Now that I've had my meal and a breather, let's do what I've been
 putting off: checking my skills. It seems I can acquire branch skills,
 so I opened my skill list.  
   
-\[Dark Magic\]'s branch skills, \[Dark Sorcery\] and \[Illusion Magic\],
+\[Dark Magic\]'s branch skills, \[Shadow Magic\] and \[Illusion Magic\],
 and \[Wind Magic\]'s branch skills, \[Thunder Magic\] and \[Spatial
 Magic\], have appeared. It seems that once you start one branch, you
 can't choose the others. If you absolutely want to learn them, you have
 to use other methods.  
   
-Well, I'll choose \[Dark Sorcery\] without hesitation. \[Illusion
+Well, I'll choose \[Shadow Magic\] without hesitation. \[Illusion
 Magic\] also interests me, but I was more interested in this one. \[Dark
 Sorcery\] seems to have a lot of skills that require you to pay a price
 to gain an ability.  
@@ -84,15 +84,15 @@ to gain an ability.
 As I tried to acquire it, I noticed that because I have over twenty
 skills, the required SP for acquisition has increased by 1. Furthermore,
 an additional 1 SP is required for branch skills. Therefore, the SP
-required to acquire \[Dark Sorcery\] is 4.  
+required to acquire \[Shadow Magic\] is 4.  
   
-I paid the 4 SP and acquired \[Dark Sorcery\]. The other branch skill,
+I paid the 4 SP and acquired \[Shadow Magic\]. The other branch skill,
 \[Illusion Magic\], disappeared from the list. I'd like to acquire it
 again if I have the chance, but if I acquire them all at once, I'll run
 out of SP. I'll put off \[Thunder Magic\] and \[Spatial Magic\], the
 branch skills of \[Wind Magic\], for now.  
   
-I learned \[Drain\], the first spell of \[Dark Sorcery\]. It's a skill
+I learned \[Drain\], the first spell of \[Shadow Magic\]. It's a skill
 that absorbs the target's HP and restores my own HP.  
   
 After that, I checked the skills that changed due to leveling up.
@@ -187,7 +187,7 @@ Basic Skills
   
 \[Magic Knowledge LV20\]\[Magic Power LV20\]  
   
-\[Dark Magic LV20\]\[Dark Sorcery LV1\]  
+\[Dark Magic LV20\]\[Shadow Magic LV1\]  
 \[Wind Magic LV20\]\[Earth Magic LV8\]  
   
 \[Moonlight LV13\]\[Rebellion LV11\]  
@@ -256,10 +256,8 @@ Unique Skills
 Basically, you can't see other people's skills. Therefore, Chloe can't
 see Earl's skill information.  
   
-  
-  
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0030.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0030.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0032.md)
 

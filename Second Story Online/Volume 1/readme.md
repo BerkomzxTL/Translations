@@ -82,3 +82,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [30・Help On A Whim](./chapters/Section0030.md)
 
 [31・Dark Magic and Croquettes](./chapters/Section0031.md)
+
+[32・Sleeping Steak](./chapters/Section0032.md)
