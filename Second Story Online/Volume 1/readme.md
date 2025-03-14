@@ -84,3 +84,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [31・Dark Magic and Croquettes](./chapters/Section0031.md)
 
 [32・Sleeping Steak](./chapters/Section0032.md)
+
+[33・In Search of Witch-Like Qualities](./chapters/Section0033.md)
