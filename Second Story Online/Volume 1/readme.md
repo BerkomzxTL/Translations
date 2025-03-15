@@ -86,3 +86,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [32・Sleeping Steak](./chapters/Section0032.md)
 
 [33・In Search of Witch-Like Qualities](./chapters/Section0033.md)
+
+[34・Miranda-san, the Laid-Back Shop Owner](./chapters/Section0034.md)
