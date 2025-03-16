@@ -88,3 +88,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [33・In Search of Witch-Like Qualities](./chapters/Section0033.md)
 
 [34・Miranda-san, the Laid-Back Shop Owner](./chapters/Section0034.md)
+
+[35・The Gold-Plated Group](./chapters/Section0035.md)
