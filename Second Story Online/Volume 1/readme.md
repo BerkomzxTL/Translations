@@ -90,3 +90,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [34・Miranda-san, the Laid-Back Shop Owner](./chapters/Section0034.md)
 
 [35・The Gold-Plated Group](./chapters/Section0035.md)
+
+[36・Fluffy Yokai Are Scary](./chapters/Section0036.md)
