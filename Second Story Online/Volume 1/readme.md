@@ -92,3 +92,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [35・The Gold-Plated Group](./chapters/Section0035.md)
 
 [36・Fluffy Yokai Are Scary](./chapters/Section0036.md)
+
+[37・Black Cat Capture Operation: Confronting Yokai and Evil Spirits](./chapters/Section0037.md)
