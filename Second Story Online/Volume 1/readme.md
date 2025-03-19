@@ -94,3 +94,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [36・Fluffy Yokai Are Scary](./chapters/Section0036.md)
 
 [37・Black Cat Capture Operation: Confronting Yokai and Evil Spirits](./chapters/Section0037.md)
+
+[38・The Black Cat's Wish](./chapters/Section0038.md)
