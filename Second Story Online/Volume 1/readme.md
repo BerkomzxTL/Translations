@@ -96,3 +96,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [37・Black Cat Capture Operation: Confronting Yokai and Evil Spirits](./chapters/Section0037.md)
 
 [38・The Black Cat's Wish](./chapters/Section0038.md)
+
+[39・Untrustworthy Witch](./chapters/Section0039.md)
