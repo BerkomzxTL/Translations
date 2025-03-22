@@ -100,3 +100,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [39・Untrustworthy Witch](./chapters/Section0039.md)
 
 [40・Hero-san, I’ll Give You a Holy Sword if You Help Me](./chapters/Section0040.md)
+
+[41・The Man in the Red Hood](./chapters/Section0041.md)
