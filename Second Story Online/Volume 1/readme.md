@@ -102,3 +102,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [40・Hero-san, I’ll Give You a Holy Sword if You Help Me](./chapters/Section0040.md)
 
 [41・The Man in the Red Hood](./chapters/Section0041.md)
+
+[42・The True Identity of the Red Beast](./chapters/Section0042.md)
