@@ -106,3 +106,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [42・The True Identity of the Red Beast](./chapters/Section0042.md)
 
 [43・I'll Defeat You in 10 Seconds](./chapters/Section0043.md)
+
+[44・No Need to Thank Me](./chapters/Section0044.md)
