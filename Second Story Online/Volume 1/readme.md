@@ -110,3 +110,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [44・No Need to Thank Me](./chapters/Section0044.md)
 
 [45・Let's Finish This](./chapters/Section0045.md)
+
+[46・Let's Talk As Players](./chapters/Section0046.md)
