@@ -112,3 +112,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [45・Let's Finish This](./chapters/Section0045.md)
 
 [46・Let's Talk As Players](./chapters/Section0046.md)
+
+[47・Let's Celebrate With Soba Noodles](./chapters/Section0047.md)
