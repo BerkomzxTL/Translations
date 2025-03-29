@@ -114,3 +114,9 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [46・Let's Talk As Players](./chapters/Section0046.md)
 
 [47・Let's Celebrate With Soba Noodles](./chapters/Section0047.md)
+
+[48・Guardian of the Seal](./chapters/Section0048.md)
+
+[49・Magician Lucille](./chapters/Section0049.md)
+
+[50 ・Witch of the Forest of the Dead](./chapters/Section0050.md)
