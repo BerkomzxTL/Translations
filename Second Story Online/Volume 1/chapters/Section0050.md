@@ -2,7 +2,7 @@
 
 
 
-# 50 ・Witch of the Forest of the Dead
+# 50・Witch of the Forest of the Dead
 
 "Cough... Just how long has this place been left uncleaned?!"  
   

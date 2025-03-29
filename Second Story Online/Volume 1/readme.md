@@ -119,4 +119,4 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 
 [49・Magician Lucille](./chapters/Section0049.md)
 
-[50 ・Witch of the Forest of the Dead](./chapters/Section0050.md)
+[50・Witch of the Forest of the Dead](./chapters/Section0050.md)
