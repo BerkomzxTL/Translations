@@ -26,3 +26,9 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [52・As a Guardian and as an Employer](./chapters/Section0052.md)
 
 [53・So You're Saying I Should Level Up?](./chapters/Section0053.md)
+
+[54・Because I’m a Witch](./chapters/Section0054.md)
+
+[55・New Clothes](./chapters/Section0055.md)
+
+[56・Request for Cold Medicine](./chapters/Section0056.md)
