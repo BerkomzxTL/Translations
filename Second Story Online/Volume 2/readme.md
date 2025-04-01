@@ -32,3 +32,9 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [55・New Clothes](./chapters/Section0055.md)
 
 [56・Request for Cold Medicine](./chapters/Section0056.md)
+
+[57・Let’s Use the Warehouse](./chapters/Section0057.md)
+
+[58・Let’s Start a Farm](./chapters/Section0058.md)
+
+[59・Reality, Virtuality, Ideality](./chapters/Section0059.md)
