@@ -38,3 +38,9 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [58・Let’s Start a Farm](./chapters/Section0058.md)
 
 [59・Reality, Virtuality, Ideality](./chapters/Section0059.md)
+
+[60・Please Don’t Take Away My Magic](./chapters/Section0060.md)
+
+[61・Management Pitfalls and Golems](./chapters/Section0061.md)
+
+[62・The Grand Prize Is a Hero’s Sword](./chapters/Section0062.md)
