@@ -44,3 +44,11 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [61・Management Pitfalls and Golems](./chapters/Section0061.md)
 
 [62・The Grand Prize Is a Hero’s Sword](./chapters/Section0062.md)
+
+[63・Let’s Fly in the Sky](./chapters/Section0063.md)
+
+[64・A Mountain of Unreadable Knowledge](./chapters/Section0064.md)
+
+[65・Crimson Apostles of Chaos](./chapters/Section0065.md)
+
+[66・I Don’t Understand What the Fairies Are Saying](./chapters/Section0066.md)
