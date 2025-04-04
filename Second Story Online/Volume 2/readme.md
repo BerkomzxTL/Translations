@@ -52,3 +52,11 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [65・Crimson Apostles of Chaos](./chapters/Section0065.md)
 
 [66・I Don’t Understand What the Fairies Are Saying](./chapters/Section0066.md)
+
+[67・I’m Not a Stalker](./chapters/Section0067.md)
+
+[68・Shadow of Anxiety](./chapters/Section0068.md)
+
+[69・Mining Town](./chapters/Section0069.md)
+
+[70・Long Time No See, Bandit-san](./chapters/Section0070.md)
