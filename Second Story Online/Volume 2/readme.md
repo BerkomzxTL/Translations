@@ -60,3 +60,11 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [69・Mining Town](./chapters/Section0069.md)
 
 [70・Long Time No See, Bandit-san](./chapters/Section0070.md)
+
+[71・The Testimony of White Rabbit-san](./chapters/Section0071.md)
+
+[72・Center of Attention](./chapters/Section0072.md)
+
+[73・Little Reaper](./chapters/Section0073.md)
+
+[74・Taking Breaks Is Also Important](./chapters/Section0074.md)
