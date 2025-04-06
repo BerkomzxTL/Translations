@@ -7,7 +7,7 @@
 I never thought I'd meet them here of all places… Their matching gold
 outfits are as dazzling as ever.  
   
-"Light-kun, calm down!"  
+"Light, calm down!"  
 "Rush! Are you planning to cause trouble again!?"  
   
 Perhaps sensing the strained atmosphere between Light-kun and the large
