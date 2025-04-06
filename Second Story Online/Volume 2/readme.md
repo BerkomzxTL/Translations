@@ -68,3 +68,13 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [73・Little Reaper](./chapters/Section0073.md)
 
 [74・Taking Breaks Is Also Important](./chapters/Section0074.md)
+
+[75・You’re Under Arrest](./chapters/Section0075.md)
+
+[76・What We Found Was a Red Shadow](./chapters/Section0076.md)
+
+[77・My Victims’ Association](./chapters/Section0077.md)
+
+[78・That Man](./chapters/Section0078.md)
+
+[79・Truth Revealed](./chapters/Section0079.md)
