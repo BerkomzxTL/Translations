@@ -78,3 +78,11 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [78・That Man](./chapters/Section0078.md)
 
 [79・Truth Revealed](./chapters/Section0079.md)
+
+[80・The Mask Removed](./chapters/Section0080.md)
+
+[81・That Person’s Name Is](./chapters/Section0081.md)
+
+[82・One Who Is Both Living and Dead](./chapters/Section0082.md)
+
+[83・Light and Darkness](./chapters/Section0083.md)
