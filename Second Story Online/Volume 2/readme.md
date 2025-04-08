@@ -86,3 +86,11 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [82・One Who Is Both Living and Dead](./chapters/Section0082.md)
 
 [83・Light and Darkness](./chapters/Section0083.md)
+
+[84・The Town Stained in Crimson Chaos](./chapters/Section0084.md)
+
+[85・Gathering Information](./chapters/Section0085.md)
+
+[86・Demonic Beast Willamedes](./chapters/Section0086.md)
+
+[87・Stop the Role](./chapters/Section0087.md)
