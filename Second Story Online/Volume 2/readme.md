@@ -94,3 +94,11 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [86・Demonic Beast Willamedes](./chapters/Section0086.md)
 
 [87・Stop the Role](./chapters/Section0087.md)
+
+[88・The Gathering](./chapters/Section0088.md)
+
+[89・Subjugation Operation](./chapters/Section0089.md)
+
+[90・Tears of God](./chapters/Section0090.md)
+
+[91・In Search of a Happy Ending](./chapters/Section0091.md)
