@@ -1,5 +1,4 @@
 # BerkomzxTL Translations
-Just picking up whatever I feel like, probably only dropped series that I find interesting
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
@@ -10,4 +9,5 @@ Just picking up whatever I feel like, probably only dropped series that I find i
 - A Maiden's Unwanted Heroic Epic (Chapters 311-357)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - Second Story Online
-
+- Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
+  - Heartwarming Reincarnation
