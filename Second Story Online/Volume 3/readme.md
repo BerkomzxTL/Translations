@@ -20,3 +20,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 
 
 # Table of Contents
+
+[96・Please Refrain From Posting Spoilers](./chapters/Section0096.md)
