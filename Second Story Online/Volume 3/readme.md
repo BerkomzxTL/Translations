@@ -22,3 +22,11 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 # Table of Contents
 
 [96・Please Refrain From Posting Spoilers](./chapters/Section0096.md)
+
+[97・Don’t Think About the Contents](./chapters/Section0097.md)
+
+[98・Money Flying Away](./chapters/Section0098.md)
+
+[99・A Truth Born From Lies](./chapters/Section0099.md)
+
+[100・See You on Stage](./chapters/Section0100.md)
