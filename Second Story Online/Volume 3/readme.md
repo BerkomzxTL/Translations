@@ -30,3 +30,9 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [99・A Truth Born From Lies](./chapters/Section0099.md)
 
 [100・See You on Stage](./chapters/Section0100.md)
+
+[101・Get Rich Quick](./chapters/Section0101.md)
+
+[102・Let’s Form a Party](./chapters/Section0102.md)
+
+[103・Beware of Getting Caught Up in Things](./chapters/Section0103.md)
