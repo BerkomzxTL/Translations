@@ -18,3 +18,11 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 
 
 # Table of Contents
+
+[Chapter 1・I Love Games](./chapters/Section_0001.md)
+
+[Chapter 2・My Family Is in Big Trouble](./chapters/Section_0002.md)
+
+[Chapter 3・Leave It to Me](./chapters/Section_0003.md)
+
+[Chapter 4・My Father Is Healthy Again](./chapters/Section_0004.md)

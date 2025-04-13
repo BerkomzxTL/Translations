@@ -36,3 +36,13 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [102・Let’s Form a Party](./chapters/Section0102.md)
 
 [103・Beware of Getting Caught Up in Things](./chapters/Section0103.md)
+
+[104・Surprisingly Clumsy](./chapters/Section0104.md)
+
+[105・Not Yet Expired](./chapters/Section0105.md)
+
+[106・Beyond the Fall](./chapters/Section0106.md)
+
+[107・Is It Okay To Kill the Boss in One Hit?](./chapters/Section0107.md)
+
+[108・What Is Your Path?](./chapters/Section0108.md)
