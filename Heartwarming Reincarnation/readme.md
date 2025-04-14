@@ -26,3 +26,9 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 3・Leave It to Me](./chapters/Section_0003.md)
 
 [Chapter 4・My Father Is Healthy Again](./chapters/Section_0004.md)
+
+[Chapter 5・I Used Fertilizer on the Field](./chapters/Section_0005.md)
+
+[Chapter 6・This Is My Scoop](./chapters/Section_0006.md)
+
+[Chapter 7・My Child Is a Genius](./chapters/Section_0007.md)

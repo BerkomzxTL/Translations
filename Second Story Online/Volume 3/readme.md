@@ -46,3 +46,13 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [107・Is It Okay To Kill the Boss in One Hit?](./chapters/Section0107.md)
 
 [108・What Is Your Path?](./chapters/Section0108.md)
+
+[109・The Explosive Birth of a Cat-Eared Loli-Baba](./chapters/Section0109.md)
+
+[110・I Could Use a Golem’s Help](./chapters/Section0110.md)
+
+[111・Things Picked Up on Accident](./chapters/Section0111.md)
+
+[112・Port Town Sealink](./chapters/Section0112.md)
+
+[113・New Equipment](./chapters/Section0113.md)
