@@ -56,3 +56,13 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [112・Port Town Sealink](./chapters/Section0112.md)
 
 [113・New Equipment](./chapters/Section0113.md)
+
+[114・If You’re Going To Eat Poison, Might As Well Go All Out](./chapters/Section0114.md)
+
+[115・Celebration Festival](./chapters/Section0115.md)
+
+[116・A Fateful Encounter?](./chapters/Section0116.md)
+
+[117・Dishonorable Title](./chapters/Section0117.md)
+
+[118・An Old Friend](./chapters/Section0118.md)
