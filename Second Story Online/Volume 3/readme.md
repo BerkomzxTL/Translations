@@ -66,3 +66,13 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [117・Dishonorable Title](./chapters/Section0117.md)
 
 [118・An Old Friend](./chapters/Section0118.md)
+
+[119・Sweets, the Devil, and a Deal](./chapters/Section0119.md)
+
+[120・Announcing the Outbreak of War](./chapters/Section0120.md)
+
+[121・War Games](./chapters/Section0121.md)
+
+[122・Dairode Front](./chapters/Section0122.md)
+
+[123・The Enemy of My Enemy Is My Friend](./chapters/Section0123.md)

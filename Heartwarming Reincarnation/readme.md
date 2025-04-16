@@ -44,3 +44,9 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 12・Concealment Is Hard Work](./chapters/Section_0012.md)
 
 [Chapter 13・My Child Is a Genius 2](./chapters/Section_0013.md)
+
+[Chapter 14・Bad Guys Keep Popping Up](./chapters/Section_0014.md)
+
+[Chapter 15・They’re Bad at Giving Up](./chapters/Section_0015.md)
+
+[Chapter 16・Let’s Do Some Remodeling](./chapters/Section_0016.md)
