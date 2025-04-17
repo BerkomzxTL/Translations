@@ -50,3 +50,11 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 15・They’re Bad at Giving Up](./chapters/Section_0015.md)
 
 [Chapter 16・Let’s Do Some Remodeling](./chapters/Section_0016.md)
+
+[Chapter 17・It’s a Ghost](./chapters/Section_0017.md)
+
+[Chapter 18・Let’s Conduct an Investigation](./chapters/Section_0018.md)
+
+[Chapter 19・I’ll Talk With the Leader](./chapters/Section_0019.md)
+
+[Chapter 20・The Safe Is Here](./chapters/Section_0020.md)

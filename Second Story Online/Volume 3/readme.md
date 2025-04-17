@@ -76,3 +76,13 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [122・Dairode Front](./chapters/Section0122.md)
 
 [123・The Enemy of My Enemy Is My Friend](./chapters/Section0123.md)
+
+[124・Connection](./chapters/Section0124.md)
+
+[125・Irregularities Are Inevitable](./chapters/Section0125.md)
+
+[126・And the Hero Is Also the Type To Arrive Late](./chapters/Section0126.md)
+
+[127・Young People and Being Inhuman (Intentional)](./chapters/Section0127.md)
+
+[128・Perseverance Is Also an Aesthetic](./chapters/Section0128.md)
