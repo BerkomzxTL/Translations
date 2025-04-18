@@ -58,3 +58,13 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 19・I’ll Talk With the Leader](./chapters/Section_0019.md)
 
 [Chapter 20・The Safe Is Here](./chapters/Section_0020.md)
+
+[Chapter 21・Elf Girl](./chapters/Section_0021.md)
+
+[Chapter 22・It’s a Growth Period](./chapters/Section_0022.md)
+
+[Chapter 23・Deep Breaths Are Important](./chapters/Section_0023.md)
+
+[Chapter 24・Samyu Arumu](./chapters/Section_0024.md)
+
+[Chapter 25・I Understand the Circumstances](./chapters/Section_0025.md)

@@ -86,3 +86,7 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [127・Young People and Being Inhuman (Intentional)](./chapters/Section0127.md)
 
 [128・Perseverance Is Also an Aesthetic](./chapters/Section0128.md)
+
+[129・Somewhere Else](./chapters/Section0129.md)
+
+[130・Pursuit of Ideals](./chapters/Section0130.md)
