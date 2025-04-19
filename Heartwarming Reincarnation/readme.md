@@ -68,3 +68,11 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 24・Samyu Arumu](./chapters/Section_0024.md)
 
 [Chapter 25・I Understand the Circumstances](./chapters/Section_0025.md)
+
+[Chapter 26・My Child Is a Genius 3](./chapters/Section_0026.md)
+
+[Chapter 27・It Seems To Be Sealed](./chapters/Section_0027.md)
+
+[Chapter 28・The Elves' Secret](./chapters/Section_0028.md)
+
+[Chapter 29・We Need To Crush the Head](./chapters/Section_0029.md)

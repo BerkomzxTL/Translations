@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section_0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section_0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section_0026.md)
 
 
 
@@ -221,5 +221,5 @@ Her beautiful blue eyes were hidden behind a torrent of tears…
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section_0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section_0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section_0026.md)
 
