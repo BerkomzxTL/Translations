@@ -76,3 +76,9 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 28・The Elves' Secret](./chapters/Section_0028.md)
 
 [Chapter 29・We Need To Crush the Head](./chapters/Section_0029.md)
+
+[Chapter 30・Building an Underground Passage](./chapters/Section_0030.md)
+
+[Chapter 31・Don’t Forget To Ask Questions](./chapters/Section_0031.md)
+
+[Chapter 32・Mission Accomplished](./chapters/Section_0032.md)
