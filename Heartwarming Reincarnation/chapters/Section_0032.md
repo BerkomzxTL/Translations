@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section_0031.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section_0031.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section_0033.md)
 
 
 
@@ -188,5 +188,5 @@ I saluted smartly while being held by Samyu.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section_0031.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section_0031.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section_0033.md)
 

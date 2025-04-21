@@ -82,3 +82,13 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 31・Don’t Forget To Ask Questions](./chapters/Section_0031.md)
 
 [Chapter 32・Mission Accomplished](./chapters/Section_0032.md)
+
+[Chapter 33・We Made a Guardian Contract](./chapters/Section_0033.md)
+
+[Chapter 34・We Ran Into an Incident As Soon as We Set Off!](./chapters/Section_0034.md)
+
+[Chapter 35・It Was a Carriage Under Attack](./chapters/Section_0035.md)
+
+[Chapter 36・I Was Invited to a Tea Party](./chapters/Section_0036.md)
+
+[Chapter 37・Time for Some Recovery Potions](./chapters/Section_0037.md)
