@@ -92,3 +92,9 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 36・I Was Invited to a Tea Party](./chapters/Section_0036.md)
 
 [Chapter 37・Time for Some Recovery Potions](./chapters/Section_0037.md)
+
+[Chapter 38・I Arrived at Reoliga City](./chapters/Section_0038.md)
+
+[Chapter 39・I Received a Letter](./chapters/Section_0039.md)
+
+[Chapter 40・She’s a Princess](./chapters/Section_0040.md)
