@@ -98,3 +98,11 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 39・I Received a Letter](./chapters/Section_0039.md)
 
 [Chapter 40・She’s a Princess](./chapters/Section_0040.md)
+
+[Chapter 41・Carrie Finè Langirosa](./chapters/Section_0041.md)
+
+[Chapter 42・The Red Haired Knight](./chapters/Section_0042.md)
+
+[Chapter 43・It’s a Tea Party](./chapters/Section_0043.md)
+
+[Chapter 44・There Is Supposedly a Prophecy](./chapters/Section_0044.md)
