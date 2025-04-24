@@ -106,3 +106,13 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 43・It’s a Tea Party](./chapters/Section_0043.md)
 
 [Chapter 44・There Is Supposedly a Prophecy](./chapters/Section_0044.md)
+
+[Chapter 45・Supporting From the Shadows](./chapters/Section_0045.md)
+
+[Chapter 46・I Can Hear a Voice](./chapters/Section_0046.md)
+
+[Chapter 47・To Reduce Anxiety a Little](./chapters/Section_0047.md)
+
+[Chapter 48・Reni Is a Genius](./chapters/Section_0048.md)
+
+[Chapter 49・The Cult Is Suspicious](./chapters/Section_0049.md)
