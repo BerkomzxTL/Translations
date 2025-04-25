@@ -116,3 +116,15 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 48・Reni Is a Genius](./chapters/Section_0048.md)
 
 [Chapter 49・The Cult Is Suspicious](./chapters/Section_0049.md)
+
+[Chapter 50・Let's Go](./chapters/Section_0050.md)
+
+[Chapter 51・It’s a Church](./chapters/Section_0051.md)
+
+[Chapter 52・I Understand My Father’s Feelings](./chapters/Section_0052.md)
+
+[Chapter 53・It’s an Undercover Investigation](./chapters/Section_0053.md)
+
+[Chapter 54・Let’s Defeat Them All](./chapters/Section_0054.md)
+
+[Chapter 55・I Understand the Purpose of the Church](./chapters/Section_0055.md)
