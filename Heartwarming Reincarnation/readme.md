@@ -128,3 +128,13 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 54・Let’s Defeat Them All](./chapters/Section_0054.md)
 
 [Chapter 55・I Understand the Purpose of the Church](./chapters/Section_0055.md)
+
+[Chapter 56・Reni Is a Genius 2](./chapters/Section_0056.md)
+
+[Chapter 57・I Met Up With Pio](./chapters/Section_0057.md)
+
+[Chapter 58・Heading to the Capital](./chapters/Section_0058.md)
+
+[Chapter 59・It Seems They Don’t Get Along](./chapters/Section_0059.md)
+
+[Chapter 60・Salmon Swimming Upstream](./chapters/Section_0060.md)
