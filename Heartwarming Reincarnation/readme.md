@@ -138,3 +138,15 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 59・It Seems They Don’t Get Along](./chapters/Section_0059.md)
 
 [Chapter 60・Salmon Swimming Upstream](./chapters/Section_0060.md)
+
+[Chapter 61・Reni Is a Genius 3 (1)](./chapters/Section_0061.md)
+
+[Chapter 62・Reni Is a Genius 3 (2)](./chapters/Section_0062.md)
+
+[Chapter 63・I’m Here To Help](./chapters/Section_0063.md)
+
+[Chapter 64・I Am Me](./chapters/Section_0064.md)
+
+[Chapter 65・The Seal Has Been Broken](./chapters/Section_0065.md)
+
+[Chapter 66・My Body Is Hot](./chapters/Section_0066.md)
