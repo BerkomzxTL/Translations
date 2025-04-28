@@ -150,3 +150,9 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 65・The Seal Has Been Broken](./chapters/Section_0065.md)
 
 [Chapter 66・My Body Is Hot](./chapters/Section_0066.md)
+
+[Chapter 67・We’re Heading To The Elven Forest](./chapters/Section_0067.md)
+
+[Chapter 68・An Unexpected Visitor…](./chapters/Section_0068.md)
+
+[Chapter 69・Introductions Make Me Nervous](./chapters/Section_0069.md)
