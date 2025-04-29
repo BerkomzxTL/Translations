@@ -11,3 +11,5 @@
   - Second Story Online
 - Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
   - Heartwarming Reincarnation
+- Liberation of the Demon Kingdom ~The Tale of Two Girls~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
+  - Liberation of the Demon Kingdom

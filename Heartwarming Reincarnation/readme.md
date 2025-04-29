@@ -156,3 +156,11 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 68・An Unexpected Visitor…](./chapters/Section_0068.md)
 
 [Chapter 69・Introductions Make Me Nervous](./chapters/Section_0069.md)
+
+[Chapter 70・I’ll Receive a \[Mana Appraisal\]](./chapters/Section_0070.md)
+
+[Chapter 71・Reni Is a Genius](./chapters/Section_0071.md)
+
+[Chapter 72・I'm Stronger Now](./chapters/Section_0072.md)
+
+[Chapter 73・We Will Narrow The \[Mana Pathways\]](./chapters/Section_0073.md)
