@@ -21,3 +21,5 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 
 
 # Table of Contents
+
+[Chapter 0: The Curse of the Barrier](./chapters/Section_0000.md)
