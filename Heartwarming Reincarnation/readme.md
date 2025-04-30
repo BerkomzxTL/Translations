@@ -164,3 +164,11 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 72・I'm Stronger Now](./chapters/Section_0072.md)
 
 [Chapter 73・We Will Narrow The \[Mana Pathways\]](./chapters/Section_0073.md)
+
+[Chapter 74・Elven Forests Are Prone to Burning](./chapters/Section_0074.md)
+
+[Chapter 75・Dragon’s Boneless Ham](./chapters/Section_0075.md)
+
+[Chapter 76・My Body Doesn’t Move Well](./chapters/Section_0076.md)
+
+[Chapter 77・Reni Is a Genius 2](./chapters/Section_0077.md)

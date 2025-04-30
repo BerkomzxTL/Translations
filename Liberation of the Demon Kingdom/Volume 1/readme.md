@@ -1,6 +1,6 @@
 # Metadata
 
-# Liberation of the Demon Kingdom ~The Tale of Two Girls~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
+# Liberation of the Demon Kingdom \~The Tale of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
   
 Volume 1
 

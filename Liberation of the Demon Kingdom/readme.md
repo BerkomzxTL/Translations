@@ -1,4 +1,4 @@
-# Liberation of the Demon Kingdom ~The Tale of Two Girls~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
+# Liberation of the Demon Kingdom \~The Tale of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
   
 _Author:_ _Keiji Aigami (相上圭司)_
 
