@@ -12,7 +12,7 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 
 [\[Source\]](https://ncode.syosetu.com/n6348iq/)
 
-[\[Novel Updates\]](https://www.novelupdates.com/)
+[\[Novel Updates\]](https://www.novelupdates.com/series/liberation-of-the-demon-kingdom-the-tale-of-two-girls-%E2%80%BBthe-adventure-of-two-girls-who-are-unrivaled-with-swords-and-magic/)
 
 
 
@@ -23,3 +23,5 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 # Table of Contents
 
 [Chapter 0: The Curse of the Barrier](./chapters/Section_0000.md)
+
+[Chapter 1: Borderlands - Encounter -](./chapters/Section_0001.md)

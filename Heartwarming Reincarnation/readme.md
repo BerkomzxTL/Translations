@@ -172,3 +172,9 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 76・My Body Doesn’t Move Well](./chapters/Section_0076.md)
 
 [Chapter 77・Reni Is a Genius 2](./chapters/Section_0077.md)
+
+[Chapter 78・Mission Accomplished](./chapters/Section_0078.md)
+
+[Chapter 79・It’s a Treasure Hunt](./chapters/Section_0079.md)
+
+[Chapter 80・Let's talk](./chapters/Section_0080.md)

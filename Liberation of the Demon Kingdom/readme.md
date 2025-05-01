@@ -8,4 +8,4 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 
 [\[Source\]](https://ncode.syosetu.com/n6348iq/)
 
-[\[Novel Updates\]](https://www.novelupdates.com/)
+[\[Novel Updates\]](https://www.novelupdates.com/series/liberation-of-the-demon-kingdom-the-tale-of-two-girls-%E2%80%BBthe-adventure-of-two-girls-who-are-unrivaled-with-swords-and-magic/)
