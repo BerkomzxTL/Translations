@@ -178,3 +178,9 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 79・It’s a Treasure Hunt](./chapters/Section_0079.md)
 
 [Chapter 80・Let's talk](./chapters/Section_0080.md)
+
+[Chapter 81・I Will Practice Discipline](./chapters/Section_0081.md)
+
+[Chapter 82・Let’s Go to the Lake](./chapters/Section_0082.md)
+
+[Chapter 83・I Found a Water Snake!](./chapters/Section_0083.md)

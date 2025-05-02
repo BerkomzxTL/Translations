@@ -25,3 +25,5 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 [Chapter 0: The Curse of the Barrier](./chapters/Section_0000.md)
 
 [Chapter 1: Borderlands - Encounter -](./chapters/Section_0001.md)
+
+[Chapter 2: The Royal Capital](./chapters/Section_0002.md)
