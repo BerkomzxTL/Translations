@@ -27,3 +27,5 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 [Chapter 1: Borderlands - Encounter -](./chapters/Section_0001.md)
 
 [Chapter 2: The Royal Capital](./chapters/Section_0002.md)
+
+[Chapter 3: Aoi and Hisui](./chapters/Section_0003.md)

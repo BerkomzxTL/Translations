@@ -184,3 +184,13 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 82・Let’s Go to the Lake](./chapters/Section_0082.md)
 
 [Chapter 83・I Found a Water Snake!](./chapters/Section_0083.md)
+
+[Chapter 84・There Was a Reservoir](./chapters/Section_0084.md)
+
+[Chapter 85・It’s the Basics of Business](./chapters/Section_0085.md)
+
+[Chapter 86・It’s an Original Magic Spell](./chapters/Section_0086.md)
+
+[Chapter 87・I’ll Level the Ground](./chapters/Section_0087.md)
+
+[Chapter 88・The Village Is Back to Normal!…Right?](./chapters/Section_0088.md)
