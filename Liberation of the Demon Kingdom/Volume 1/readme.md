@@ -29,3 +29,5 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 [Chapter 2: The Royal Capital](./chapters/Section_0002.md)
 
 [Chapter 3: Aoi and Hisui](./chapters/Section_0003.md)
+
+[Chapter 4: The Royal Castle](./chapters/Section_0004.md)

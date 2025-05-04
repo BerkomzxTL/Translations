@@ -194,3 +194,13 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 87・I’ll Level the Ground](./chapters/Section_0087.md)
 
 [Chapter 88・The Village Is Back to Normal!…Right?](./chapters/Section_0088.md)
+
+[Chapter 89・Versus \[Water Serpent\]!](./chapters/Section_0089.md)
+
+[Chapter 90・I Got the \[Water Serpent\] Treasure!](./chapters/Section_0090.md)
+
+[Chapter 91・A Rabbit Beastkin](./chapters/Section_0091.md)
+
+[Chapter 92・Memories Resurfacing](./chapters/Section_0092.md)
+
+[Chapter 93・The Young Elf Is a Natural Disaster](./chapters/Section_0093.md)
