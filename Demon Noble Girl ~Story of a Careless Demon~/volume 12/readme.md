@@ -85,3 +85,5 @@ raw: https://ncode.syosetu.com/n5520de/?p=2
 [Side Story 11: Everything is for Her](./chapters/Section0034.md)
 
 [Side Story 12: Give Thanks to the Spirits!](./chapters/Section0035.md)
+
+[Side Story 13: Living the Politically Correct Life](./chapters/Section0036.md)
