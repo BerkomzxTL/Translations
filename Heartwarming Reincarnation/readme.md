@@ -204,3 +204,11 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 92・Memories Resurfacing](./chapters/Section_0092.md)
 
 [Chapter 93・The Young Elf Is a Natural Disaster](./chapters/Section_0093.md)
+
+[Chapter 94・Please Guide Me](./chapters/Section_0094.md)
+
+[Chapter 95・It's \[The Ever-Shifting Desert\]](./chapters/Section_0095.md)
+
+[Chapter 96・Versus \[Poisonous Chicken\]!](./chapters/Section_0096.md)
+
+[Chapter 97・I Got the \[Poisonous Chicken\] Treasure](./chapters/Section_0097.md)

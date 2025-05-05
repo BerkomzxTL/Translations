@@ -31,3 +31,5 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 [Chapter 3: Aoi and Hisui](./chapters/Section_0003.md)
 
 [Chapter 4: The Royal Castle](./chapters/Section_0004.md)
+
+[Chapter 5: King Berg](./chapters/Section_0005.md)
