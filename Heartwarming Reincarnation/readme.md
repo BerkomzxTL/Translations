@@ -212,3 +212,11 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 96・Versus \[Poisonous Chicken\]!](./chapters/Section_0096.md)
 
 [Chapter 97・I Got the \[Poisonous Chicken\] Treasure](./chapters/Section_0097.md)
+
+[Chapter 98・It’s \[The Forest of Reflection\]](./chapters/Section_0098.md)
+
+[Chapter 99・It Was All a Dream](./chapters/Section_0099.md)
+
+[Chapter 100・Because Your World Is Precious](./chapters/Section_0100.md)
+
+[Chapter 101・Into the Light](./chapters/Section_0101.md)
