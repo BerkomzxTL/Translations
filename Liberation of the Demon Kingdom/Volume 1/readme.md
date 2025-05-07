@@ -37,3 +37,15 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 [Chapter 6: Royal Cuisine and Magic Tools.](./chapters/Section_0006.md)
 
 [Chapter 7: Aoi's Magic Sword](./chapters/Section_0007.md)
+
+[Chapter 8: A-Rank Knight](./chapters/Section_0008.md)
+
+[Chapter 9: Aoi](./chapters/Section_0009.md)
+
+[Chapter 10: Would You Like To Challenge Me?](./chapters/Section_0010.md)
+
+[Chapter 11: Anxiety and Destiny.](./chapters/Section_0011.md)
+
+[Chapter 12: Demon God of Chaos](./chapters/Section_0012.md)
+
+[Chapter 13: Encounter](./chapters/Section_0013.md)

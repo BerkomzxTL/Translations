@@ -220,3 +220,7 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 [Chapter 100・Because Your World Is Precious](./chapters/Section_0100.md)
 
 [Chapter 101・Into the Light](./chapters/Section_0101.md)
+
+[Chapter 102・I'm Back](./chapters/Section_0102.md)
+
+[Chapter 103・I Got a Jewel](./chapters/Section_0103.md)
