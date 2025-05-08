@@ -44,12 +44,11 @@ and said, "I've discovered something! If you alternate the green onion
 and the octopus, put them on skewers, and lightly grill them, the
 flavors of both will blend together, making it delicious!"
 
-"Negi-ma..." (TN: 'negi' for green onion, 'ma' referring to the dried
-squid)
+"Negima..." (TN: negima is a dish of grilled chicken and green onion skewers)
 
-No, in this case, there's more green onion, so it's more like tama? Does
+No, in this case, there's more green onion, so it's more like takoma? Does
 the quantity matter? Wasn't the original dish a hot pot, not grilled
-skewers?
+skewers? (TN: tako -> octopus)
 
 "Lady Yurushia, anticipating something like this, I simmered the green
 onions with the dried squid. Please try it."
