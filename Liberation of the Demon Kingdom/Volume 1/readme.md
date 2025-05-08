@@ -49,3 +49,13 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 [Chapter 12: Demon God of Chaos](./chapters/Section_0012.md)
 
 [Chapter 13: Encounter](./chapters/Section_0013.md)
+
+[Chapter 14: Arcadia B-Rank Knight](./chapters/Section_0014.md)
+
+[Chapter 15: Preparing for the Journey](./chapters/Section_0015.md)
+
+[Chapter 16: Attack](./chapters/Section_0016.md)
+
+[Chapter 17: Cleaning Up](./chapters/Section_0017.md)
+
+[Chapter 18: Departure](./chapters/Section_0018.md)
