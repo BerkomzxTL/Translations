@@ -59,3 +59,15 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 [Chapter 17: Cleaning Up](./chapters/Section_0017.md)
 
 [Chapter 18: Departure](./chapters/Section_0018.md)
+
+[Chapter 19: Near the Royal Capital](./chapters/Section_0019.md)
+
+[Chapter 20: Bath and Peeping.](./chapters/Section_0020.md)
+
+[Chapter 21: Call Me Aoi.](./chapters/Section_0021.md)
+
+[Chapter 22: Two Guardians](./chapters/Section_0022.md)
+
+[Chapter 23: Hisui's Feelings](./chapters/Section_0023.md)
+
+[Chapter 24: Merchant Caravan](./chapters/Section_0024.md)
