@@ -71,3 +71,13 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 [Chapter 23: Hisui's Feelings](./chapters/Section_0023.md)
 
 [Chapter 24: Merchant Caravan](./chapters/Section_0024.md)
+
+[Chapter 25: Jinrai's Magic](./chapters/Section_0025.md)
+
+[Chapter 26: Time for Two](./chapters/Section_0026.md)
+
+[Chapter 27: Aoi's Stone Statue](./chapters/Section_0027.md)
+
+[Chapter 28: Special Training](./chapters/Section_0028.md)
+
+[Chapter 29: Hisui's Thoughts](./chapters/Section_0029.md)
