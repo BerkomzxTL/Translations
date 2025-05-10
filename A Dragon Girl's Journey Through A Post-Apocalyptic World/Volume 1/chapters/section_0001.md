@@ -269,7 +269,7 @@ the giant deer that was much larger than me.
 I continued to devour the giant deer's leg with single-minded
 devotion.  
 After eating most of the leg, I stood up in a daze... and as I took in
-the view from the rooftop, wind blowing, my mouth smeared with blood
+the view from the rooftop, wind blowing around, my mouth smeared with blood
 distorted.  
 “…What is this?”  
   
