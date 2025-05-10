@@ -13,3 +13,4 @@
   - Heartwarming Reincarnation
 - Liberation of the Demon Kingdom \~The Tale of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
   - Liberation of the Demon Kingdom
+- A Dragon Girl's Journey Through A Post-Apocalyptic World
