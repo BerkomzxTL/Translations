@@ -281,7 +281,7 @@ bamboo.
 ------------------------------------------------------------------------
 
 *TN: Ye old faithful sfx. This is the same author who wrote ‘Demon Noble
-Girl ~Story of a Careless Demon~’ and ‘Otome Game no Heroine de Saikyou
+Girl \~Story of a Careless Demon\~’ and ‘Otome Game no Heroine de Saikyou
 Survival’, etc. Here’s an illustration of the protagonist by the author
 (NovelUpdates cover):
 [https://img.syosetu.org/img/user/319940/124606.jpg](https://www.google.com/url?q=https://img.syosetu.org/img/user/319940/124606.jpg&sa=D&source=editors&ust=1746908589969116&usg=AOvVaw3ndY2IqZk9zTPJS_PsphP1)*
