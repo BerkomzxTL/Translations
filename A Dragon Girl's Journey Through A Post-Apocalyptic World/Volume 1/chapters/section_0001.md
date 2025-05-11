@@ -269,7 +269,7 @@ the giant deer that was much larger than me.
 I continued to devour the giant deer's leg with single-minded
 devotion.  
 After eating most of the leg, I stood up in a daze... and as I took in
-the view from the rooftop, wind blowing, my mouth smeared with blood
+the view from the rooftop, wind blowing around me, my mouth smeared with blood
 distorted.  
 “…What is this?”  
   
@@ -282,9 +282,8 @@ bamboo.
 
 *TN: Ye old faithful sfx. This is the same author who wrote ‘Demon Noble
 Girl ~Story of a Careless Demon~’ and ‘Otome Game no Heroine de Saikyou
-Survival’, etc. Here’s an illustration of the protagonist by the author
-(NovelUpdates cover):
-[https://img.syosetu.org/img/user/319940/124606.jpg](https://www.google.com/url?q=https://img.syosetu.org/img/user/319940/124606.jpg&sa=D&source=editors&ust=1746908589969116&usg=AOvVaw3ndY2IqZk9zTPJS_PsphP1)*
+Survival’, etc. Here’s an illustration of the protagonist by the author:
+[https://img.syosetu.org/img/user/319940/124606.jpg](https://img.syosetu.org/img/user/319940/124606.jpg)*
 
 
 ---
