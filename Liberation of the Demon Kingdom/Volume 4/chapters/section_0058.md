@@ -2,7 +2,7 @@
 
 
 
-# Chapter 143: Epilogue ~Tomorrow~
+# Chapter 143: Epilogue \~Tomorrow\~
 
 **Last chapter of volume 4, The Demon Kingdom**  
 

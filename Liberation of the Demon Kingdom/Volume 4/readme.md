@@ -136,7 +136,7 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 
 [Chapter 142: Liberation of the Demon Kingdom](./chapters/section_0057.md)
 
-[Chapter 143: Epilogue ~Tomorrow~](./chapters/section_0058.md)
+[Chapter 143: Epilogue \~Tomorrow\~](./chapters/section_0058.md)
 
 [Chapter 144: Fragment 1](./chapters/section_0059.md)
 
