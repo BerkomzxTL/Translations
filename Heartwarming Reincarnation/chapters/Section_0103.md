@@ -169,12 +169,7 @@ LN), and to be honest I found the MC's tendency to treat everything like
 a video game to be somewhat detached and messed up, but still mostly
 fun.  
   
-My next (current) project is [Liberation of the Demon Kingdom \~The Tale
-of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords
-and
-Magic](https://www.novelupdates.com/series/liberation-of-the-demon-kingdom-the-tale-of-two-girls-%E2%80%BBthe-adventure-of-two-girls-who-are-unrivaled-with-swords-and-magic/).
-It's a little shallow, but it's a chill yuri adventure so that makes it
-okay. Check it out if it seems interesting.  
+My next (current) project is [A Dragon Girl’s Journey Through A Post-Apocalyptic World](https://www.novelupdates.com/series/a-dragon-girls-journey-through-a-post-apocalyptic-world/). It's written by the same author as Demon Noble Girl and Otome Game no Heroine de Saikyou Survival. Check it out if it seems interesting.  
 
 
 ---
