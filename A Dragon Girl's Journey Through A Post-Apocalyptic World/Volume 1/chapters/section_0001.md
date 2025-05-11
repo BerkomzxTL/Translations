@@ -280,9 +280,7 @@ bamboo.
 
 ------------------------------------------------------------------------
 
-*TN: Ye old faithful sfx. This is the same author who wrote ‘Demon Noble
-Girl \~Story of a Careless Demon\~’ and ‘Otome Game no Heroine de Saikyou
-Survival’, etc. Here’s an illustration of the protagonist by the author:
+*TN: Ye old faithful sfx. Here’s an illustration of the protagonist by the author:
 [https://img.syosetu.org/img/user/319940/124606.jpg](https://img.syosetu.org/img/user/319940/124606.jpg)*
 
 
