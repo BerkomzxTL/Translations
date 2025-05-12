@@ -4,7 +4,7 @@
   
 Volume 1
 
-_Author:_ _Days of Spring (春の日びより)_
+_Author:_ _Haru no Hi (春の日びより)_
 
 _TN: BerkomzxTL_
 
@@ -22,3 +22,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 # Table of Contents
 
 [1 Waking Up To A Post-Apocalyptic World](./chapters/section_0001.md)
+
+[2 From An Egg?](./chapters/section_0002.md)

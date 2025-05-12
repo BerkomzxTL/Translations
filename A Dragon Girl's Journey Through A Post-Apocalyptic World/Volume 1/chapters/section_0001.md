@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0002.md)
 
 
 
@@ -42,10 +42,10 @@ somewhat satisfied, "I" finally had the leeway to look around.
 “…Where… am I?”  
 A slight incongruity… Is this "my” "voice"? Looking around, I realized
 that this was a private hospital room, but…  
-“‘Hospital’… what? Ah, right… a *‘hospital’*."  
+“'Hospital'… what? Ah, right… a *hospital*."  
   
 An unfamiliar "word" appeared in my head. And looking at the room again,
-I was able to understand that this is a *‘hospital room’*, by comparing
+I was able to understand that this is a *hospital room*, by comparing
 the "reality" with my "knowledge."  
 An unfamiliar place. An incomprehensible situation. In the midst of not
 knowing anything, a great question crossed my mind.  
@@ -73,7 +73,7 @@ it’s a room like a hospital room, and that the thing I touched is a
 capsule; I can even make out its shape.  
 In that darkness, I realized that something that looked faintly like a
 "line" was light leaking from the gap in the door.  
-Yes… a *‘door.’* Matching it with my "knowledge" within myself, I
+Yes… a *door.* Matching it with my "knowledge" within myself, I
 understood that it’s the entrance to this room. Believing that the
 "light" I saw in my dream was that, I clung to it. Grab――  
 “…It won’t open? Why…? Cough…”  
@@ -285,5 +285,5 @@ bamboo.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0002.md)
 
