@@ -2,12 +2,15 @@
   
 Volumes 1-3
 
-_Author:_ _Days of Spring (春の日びより)_
+_Author:_ _Haru no Hi (春の日びより)_
 
 _TN: BerkomzxTL_
 
-_Tags: Action, Adventure, Supernatural, Fantasy, Mystery, Slice of Life_
+_Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
+
 
 [\[Source\]](https://ncode.syosetu.com/n4711in/)
 
-[\[Novel Updates\]](https://www.novelupdates.com/)
+[\[Novel Updates\]](https://www.novelupdates.com/series/a-dragon-girls-journey-through-a-post-apocalyptic-world/)
+
+![image](cover.jpg)

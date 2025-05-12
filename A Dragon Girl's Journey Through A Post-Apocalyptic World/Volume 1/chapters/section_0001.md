@@ -283,7 +283,7 @@ bamboo.
 *TN: Ye old faithful sfx. Here’s an illustration of the protagonist by the author:
 [https://img.syosetu.org/img/user/319940/124606.jpg](https://img.syosetu.org/img/user/319940/124606.jpg)*
 
+![image](../../cover.jpg)
 
 ---
 [TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0002.md)
-
