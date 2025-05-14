@@ -2,7 +2,7 @@
 
 
 
-# The Summoned Girl: Finale
+# The Summoned Girl: End
 
 That "wish" was granted.  
 From the girl who grieved the death of a creature thoughtlessly killed,

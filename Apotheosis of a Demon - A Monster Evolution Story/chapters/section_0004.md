@@ -18,7 +18,7 @@ In this world, great destruction has occurred, and people, both humans
 and demi-humans, share the blessings of the saplings and live together
 in harmony.  
 Occasionally, a race appears that tries to take the blessings for
-themselves, but there is no need for the "Goddess" to settle things.  
+themselves, but there is no need for the "Goddess (myself)" to settle things.  
 People know their own foolishness and realize that the world is not just
 theirs. Therefore, when problems arise, they cooperate to address them,
 fearing that disaster will strike again.  

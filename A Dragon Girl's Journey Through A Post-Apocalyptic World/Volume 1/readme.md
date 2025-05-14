@@ -26,3 +26,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [2 From An Egg?](./chapters/section_0002.md)
 
 [3 Because It's Not Embarrassing](./chapters/section_0003.md)
+
+[4 Smoked Meat And Leather Tanning](./chapters/section_0004.md)

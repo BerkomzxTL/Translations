@@ -415,7 +415,7 @@ The goddess of the Great Tree World Yggdrasia, Dea Ex Machina.
   
   
 \[Shedy\] \[Race: Bunny Girl\] \[Joker\]  
-・Dea Ex Machina. A "man-made goddess" born in cyberspace, possessing
+・Dea Ex Machina. An artifical goddess born in cyberspace, possessing
 the right hand  
 of a \[Demon\] to destroy all, and the left hand of a \[Goddess\] to
 save all.  

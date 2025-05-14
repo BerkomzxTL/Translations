@@ -191,7 +191,7 @@ force to seemingly snap the surrounding trees.
 ――Thud!  
 The next moment, an antler about my height pierced my side, before I
 could even react.  
-*‘BumoOOOOOOOooooooooooooooooo!!’*  
+***"BumoOOOOOOOooooooooooooooooo!!"***  
 “Aaaaaaaaaaaaaaaaaaaaaaaaaaah!!”  
   
 The giant deer roared and thrust further into my body. A scream escaped
@@ -207,14 +207,14 @@ That heat overwhelmed the terror of the sudden attack, and anger burned
 through my confusion as I dug my claws into the antler, about the
 thickness of my arm.  
   
-*‘BumoOOOOOOOooooooooo!’*  
+***"BumoOOOOOOOooooooooo!"***  
 In response, the giant deer went wild, and my body, flung around,
 crushed the stone counter.  
 “Gaha――!”  
 I felt several bones break. Spitting blood from my mouth, I held on to
 the antler that pierced my side, and with all my might, I kicked the
 giant deer's head.  
-*‘BumoO!!’*  
+***"BumoO!!"***  
 The giant deer, kicked so hard that its skeleton seemed to warp, tried
 to shake me off, leaping and running up the wall of the atrium, breaking
 through the glass ceiling.  
@@ -224,7 +224,7 @@ wasn't "scary"!
 The wounds all over my body burned with heat, and there wasn't pain or
 fear, just "heat"!  
   
-*‘BumoOOOOOOOooooooooooooooooo!!’*  
+***"BumoOOOOOOOooooooooooooooooo!!"***  
 Sensing my "will" to fight back, the giant deer roared and jumped onto
 the roof of the building, trying to throw me off, and slammed me against
 the concrete outer wall as if to crush me.  
@@ -235,7 +235,7 @@ red scales.
 Bishi!!  
 Cracks ran through the horn, hard as steel, and I applied more strength,
 trying to crush it rather than break it.  
-*‘BumoOOOOOOOooooooooooooooooo!!’*  
+***"BumoOOOOOOOooooooooooooooooo!!"***  
 The giant deer leaped high into the air. A moment of floating, the loss
 of momentum, struck me.  
 I understood that this giant deer had recognized me as a threat and

@@ -21,6 +21,6 @@ _TN: BerkomzxTL_
 
 [The Summoned Girl: Part 2](./chapters/section_0002.md)
 
-[The Summoned Girl: Finale](./chapters/section_0003.md)
+[The Summoned Girl: End](./chapters/section_0003.md)
 
 [Epilogue Single Story: Rabbit-san](./chapters/section_0004.md)
