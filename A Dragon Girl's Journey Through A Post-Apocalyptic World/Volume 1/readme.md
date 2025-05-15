@@ -28,3 +28,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [3 Because It's Not Embarrassing](./chapters/section_0003.md)
 
 [4 Smoked Meat And Leather Tanning](./chapters/section_0004.md)
+
+[5 A Town With No People](./chapters/section_0005.md)
