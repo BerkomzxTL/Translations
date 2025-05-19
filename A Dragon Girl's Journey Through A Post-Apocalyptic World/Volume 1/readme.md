@@ -36,3 +36,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [7 Jinbei's Farm (2)](./chapters/section_0007.md)
 
 [8 Jinbei's Farm (3)](./chapters/section_0008.md)
+
+[9 Jinbei's Farm (4)](./chapters/section_0009.md)
