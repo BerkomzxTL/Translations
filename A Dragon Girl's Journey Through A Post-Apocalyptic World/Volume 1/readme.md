@@ -42,3 +42,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [10 Jinbei's Farm (5)](./chapters/section_0010.md)
 
 [11 Jinbei's Farm (6)](./chapters/section_0011.md)
+
+[12 The Destroyed Neighborhood And Grilled Fish](./chapters/section_0012.md)
