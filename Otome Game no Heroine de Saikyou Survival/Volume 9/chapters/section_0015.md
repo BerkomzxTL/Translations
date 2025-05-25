@@ -146,7 +146,7 @@ before burning down the temple.
 
 <br />
 According to the rumor the princess told Aria, the "hero" arrived by
-ship in the Meirune National Federation in the north of the continent a
+ship in the Melrune National Federation in the north of the continent a
 few months ago.
 
 "I see, then the credibility goes up a bit, which is not good."
@@ -157,17 +157,17 @@ Originally, we light-skinned Mercenians did not live on this Sars
 Continent, and it is said that we arrived by ship from another continent
 in the north, along with the Holy Church.
 
-The Meirune National Federation is a federation of seven small
+The Melrune National Federation is a federation of seven small
 countries, each claiming to be the first Mercenian nation established on
 this continent, which is why they never became one in the end. However,
 a great power established later began to gain strength, and the
 countries begrudgingly formed a federation to counter it. That is the
-Meirune National Federation.
+Melrune National Federation.
 
 The fact that the hero arrived there means that they came from that
 other continent.
 
-The Meirune National Federation has apparently been trading with that
+The Melrune National Federation has apparently been trading with that
 continent, so maybe they came on one of those trade ships.
 
 <br />

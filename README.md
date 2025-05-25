@@ -15,3 +15,4 @@
   - Liberation of the Demon Kingdom
 - A Dragon Girl's Journey Through A Post-Apocalyptic World
 - Apotheosis of a Demon - A Monster Evolution Story (additional side stories)
+- Otome Game no Heroine de Saikyou Survival (Chapters 299-296)

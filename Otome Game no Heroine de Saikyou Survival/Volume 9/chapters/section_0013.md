@@ -262,7 +262,7 @@ continued.
 
 <br />
 "Aria, I've heard rumors through the dark side that a ship of 'heroes'
-from another continent has arrived at the Meirune National Union in the
+from another continent has arrived at the Melrune National Union in the
 northern part of the continent."
 
 ---
