@@ -54,3 +54,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [16 First Time At The Sea](./chapters/section_0016.md)
 
 [17 Abandoned School](./chapters/section_0017.md)
+
+[18 Exploring The School](./chapters/section_0018.md)
