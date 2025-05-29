@@ -56,3 +56,11 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [17 Abandoned School](./chapters/section_0017.md)
 
 [18 Exploring The School](./chapters/section_0018.md)
+
+[19 In Search Of A Map](./chapters/section_0019.md)
+
+[20 Granny's House (1)](./chapters/section_0020.md)
+
+[21 Granny's House (2)](./chapters/section_0021.md)
+
+[22 Granny's House (3)](./chapters/section_0022.md)
