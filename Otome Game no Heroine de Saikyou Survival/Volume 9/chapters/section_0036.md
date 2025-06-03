@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0035.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0035.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0037.md)
 
 
 
@@ -63,6 +63,7 @@ At that moment, the thread of the pendulum that Aria had placed in the
 air wrapped around Klein's neck as if coiling around it. And--.
 
 <br />
+
 "Gaaaaaaaah!"
 
 The kitty who had been waiting there pounced on Klein and swung its huge
@@ -80,9 +81,11 @@ The strong monster thread became as strong as steel by channeling mana.
 His neck was constricted, and even Klein's complexion changed literally.
 
 <br />
+
 "--Iron Rose--"
 
 <br />
+
 \[Aria (Alicia)\] \[Race: Human Female\] \[Rank 5\]
 
 \[Magic Value: 333/410\] \[Health Value: 251/310\]
@@ -90,6 +93,7 @@ His neck was constricted, and even Klein's complexion changed literally.
 \[Total Combat Strength: 2484 (During Special Body Enhancement: 5133)\]
 
 <br />
+
 There, Aria, who activated "Iron Rose," slashed Klein's abdomen with a
 black dagger.
 
@@ -99,6 +103,7 @@ had to go this far to reach the "Hero" with our blades.
 You were too careless, Klein.
 
 <br />
+
 Scattered blood... Klein's face was painted with shock...
 
 But!
@@ -120,17 +125,21 @@ Yes... Aria. I understand.
 I've been waiting for this moment.
 
 <br />
+
 "--Chase Lightning--"
 
 <br />
+
 The twin lightning strikes released from my hands crisscrossed, avoiding
 Aria and the kitty, and struck Klein, using the kitty's massive body as
 a blind spot.
 
 <br />
+
 "--Guoah!!"
 
 <br />
+
 Klein couldn’t help but scream. But, not yet!
 
 "Aria!"
@@ -138,9 +147,11 @@ Klein couldn’t help but scream. But, not yet!
 At my voice, Aria and the kitty both jumped back.
 
 <br />
+
 "--Freeze--"
 
 <br />
+
 The strongest single-target freezing magic. Thanks to the time the two
 of them bought, I was able to load it with plenty of mana.
 
@@ -152,6 +163,7 @@ verge of collapse, froze completely white.
 "...Yes, I know."
 
 <br />
+
 It's really troublesome, but we can't kill the "Hero" yet.
 
 Killing the Hero would mean a full-scale confrontation with the Holy
@@ -162,6 +174,7 @@ The princess might be able to do something about it... But for now,
 let's crush his limbs and then think about it.
 
 <br />
+
 "Gahh!"
 
 At that moment, a beam of light burst forth and pierced the kitty, who
@@ -187,6 +200,7 @@ the three of us attacking with all our might.
 "Hero"... What an absurdity.
 
 <br />
+
 "...That's cruel. To do this to me, the 'Hero' who will save the world."
 
 Klein muttered, his skin burned by lightning, the wound on his abdomen
@@ -198,6 +212,7 @@ Is this absurd power the "blessing" of the Hero?
 "...That's enough. You guys... are no longer needed."
 
 <br />
+
 "Snow!"
 
 At Aria's voice, I immediately erect a magic barrier in front, but at
@@ -215,6 +230,7 @@ could no longer move.
 "You disappear."
 
 <br />
+
 Clang!!
 
 Aria, with light particles fluttering like wings, slashed from Klein's
@@ -240,6 +256,7 @@ been using earth magic until now, but now he's finally trying to kill
 us.
 
 <br />
+
 "Gaaaaaah!"
 
 There, the stabbed kitty shielded us by taking the fireball and attacked
@@ -261,6 +278,7 @@ beast, it's not dead yet, but if it continuously takes high-level magic,
 even the kitty will be in danger.
 
 <br />
+
 "Hah!"
 
 Dogaahn!
@@ -284,6 +302,7 @@ Countless rock cannonballs were fired, caught in the hurricane, and the
 colliding and shattering rocks attacked Aria.
 
 <br />
+
 "Haaaaah!"
 
 Aria deflected them using her knife and dagger, body techniques and
@@ -338,5 +357,5 @@ If it comes down to Aria dying, I'll die instead.
 "...Soul Thorn..."
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0035.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0035.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0037.md)
 

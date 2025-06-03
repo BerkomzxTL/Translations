@@ -90,3 +90,5 @@ _TN: BerkomzxTL_
 [295 A Hero's Power](./chapters/section_0035.md)
 
 [296 For Whose Sake](./chapters/section_0036.md)
+
+[297 Naivety and Resolve](./chapters/section_0037.md)
