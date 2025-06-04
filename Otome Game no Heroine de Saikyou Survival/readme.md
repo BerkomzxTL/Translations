@@ -22,6 +22,8 @@ Also, "Volume 8.2" is what I went with but even though its one single arc in the
 
 # Table of Contents
 
+LN Volume 7 - [https://ouo.io/huuTmnz](https://ouo.io/huuTmnz)
+
 [Volume 8.2 (229-260)](Volume%208.2/readme.md)
 
 [Volume 9 (261-296+)](Volume%209/readme.md)
