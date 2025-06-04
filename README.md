@@ -5,7 +5,7 @@
 # Titles
 - Demon Noble Girl \~Story of a Careless Demon\~ (Volumes 10, 11, 12, Side Stories)
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
-  - Side Heroine Protect
+  - Reincarnated as a Side Heroine
 - A Maiden's Unwanted Heroic Epic (Chapters 311-357)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - Second Story Online
@@ -16,3 +16,9 @@
 - A Dragon Girl's Journey Through A Post-Apocalyptic World
 - Apotheosis of a Demon - A Monster Evolution Story (additional side stories)
 - Otome Game no Heroine de Saikyou Survival (Chapters 229-296)
+
+# Formatted PDFS
+- Second Story Online
+  - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
+- I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
+  - [https://ouo.io/jd0RYM](https://ouo.io/jd0RYM)
