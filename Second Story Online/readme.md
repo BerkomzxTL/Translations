@@ -11,3 +11,5 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [\[Source\]](https://ncode.syosetu.com/n6771dp/)
 
 [\[Novel Updates\]](https://www.novelupdates.com/series/second-story-online-aiming-to-become-the-worlds-number-1-ideal-witch/)
+
+Formatted PDFS - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
