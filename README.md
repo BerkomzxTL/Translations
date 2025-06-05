@@ -1,8 +1,14 @@
-# BerkomzxTL Translations
+# BerkomzxTL
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
-# Titles
+## Formatted PDFS
+- Second Story Online
+  - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
+- I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
+  - [https://ouo.io/jd0RYM](https://ouo.io/jd0RYM)
+
+## Titles
 - Demon Noble Girl \~Story of a Careless Demon\~ (Volumes 10, 11, 12, Side Stories)
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
   - Reincarnated as a Side Heroine
@@ -16,9 +22,3 @@
 - A Dragon Girl's Journey Through A Post-Apocalyptic World
 - Apotheosis of a Demon - A Monster Evolution Story (additional side stories)
 - Otome Game no Heroine de Saikyou Survival (Chapters 229-296)
-
-# Formatted PDFS
-- Second Story Online
-  - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
-- I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
-  - [https://ouo.io/jd0RYM](https://ouo.io/jd0RYM)
