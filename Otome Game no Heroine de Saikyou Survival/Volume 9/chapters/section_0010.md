@@ -2,306 +2,441 @@
 
 
 
-# 270 Unorthodox Plan
+# 238 Distorted Holy War 5
 
-Rank 7 monster, Chimera.
+That woman had soft, brownish-blonde hair tied up, and was looking at me
+with kind orange eyes.
 
-Aria can fight it, but doesn't have the means to defeat it. The Kitty,
-being of the same beast type, is Rank 6, but due to being of the same
-type, the difference in combat power is directly reflected in the
-difference in power.
-
-The Kitty's combat techniques can inflict damage, but even so, the
-difference in power makes it not a decisive blow.
-
-And even I, in my current state... cannot defeat the Chimera.
-
-Normally, I could barely inflict damage using my Blessing, so I couldn't
-surpass the Chimera's regeneration with my current power.
-
-Even if I could use my Blessing, the power would be slightly reduced due
-to losing the fire attribute, so I don't even know if I can produce the
-same power as before.
+If she were Mikhail's grandmother, she should be of a considerable age,
+but perhaps because she was a high-ranking noble with high mana, her
+appearance was only about forty years old, and her face... looked very
+much like my deceased mother.
 
 <br />
-I thought about it...
+"...Oh, I'm sorry. Calling out the name of my deceased daughter, how
+foolish of me."
 
-What is a "mage" in a party?
+"No..."
 
-Before, I only thought about becoming stronger on my own.
+I didn't know how to respond to the woman who smiled sadly with a
+troubled expression, so I shook my head slightly, and a strange
+atmosphere hung between us.
 
-To sink a great nation into a sea of ​​fire alone, to annihilate knights
-alone, to massacre high-ranking warriors alone, to burn down cities
-alone, I sought only pure "power."
+"...Cecilia. Are you alright?"
 
-But that's beyond the scope of humans. To do that, I had no choice but
-to sacrifice my life itself.
+As if sensing that atmosphere, the Margrave spoke with concern, and the
+woman called Cecilia lowered her head to the Margrave with a startled
+look.
 
-So, what about mages in adventurer parties like Aria's?
+"Lord Belt... I am sorry."
 
-Probably the opposite of what I've done...
+"No... it is enough if you all are safe."
 
-Using the knowledge to become a mage, assessing the battle situation,
-and using mana to make the party more effective instead of acting
-individually.
+Saying that, the two embraced as if confirming each other's safety, and
+then immediately showed the faces of upper-class nobles rather than
+husband and wife.
 
-But... that's not like me.
+"I want to hear the story for now. Tell me what has happened so far."
 
-<br />
-"Aria... will you listen?"
+"Understood, Lord Belt."
 
-When I explained it in a really simple way, Aria frowned at me and gave
-me a look of exasperation.
+"Mikhail! Lead the people of the mansion and deal with the enemy! I will
+report to His Majesty with the long-distance communication magic tool!"
 
-"Aren't you an idiot..."
+"Yes!"
 
-Aria said that and turned her sharp gaze forward.
+Mikhail was tense at the Margrave's command... and yet he seemed to
+sense something, giving his grandparents and me a momentary glance of
+concern before rushing off towards the castle walls. The Margrave,
+having seen off his grandson, turned back towards me, his face slightly
+bitter.
 
-"Well, shall we do it?"
+"...Aria. Please help Mikhail."
 
-"That's why I love you."
-
-I thought Aria would say that.
-
-<br />
-"Nero."
-
-"Gaa..."
-
-When Aria muttered briefly and moved her fingertips to give
-instructions, the Kitty, who was keeping the Chimera in check from a
-distance, let out a dissatisfied sound for just a moment and braced its
-body, contorting it.
-
-"--Reality Breaker--"
-
-Light was emitted from Aria's whole body, and at the same time, it
-appeared right in front of the Chimera.
-
-"Haaa!"
-
-Aria swung her blade at the Chimera.
+"Yes."
 
 <br />
-"Giiii Gyaaaaaaaaaaaaaaaaaaaaaaa!!"
-
-The Chimera screamed at the "phantom pain" of being slashed all over its
-body.
-
-The Chimera's sense of pain is dull, so that scream isn't because of the
-pain. The Chimera was wary of Aria, who has high combat power. So this
-scream should be more surprise than pain.
-
-But it doesn't end there--
+The Margrave gave instructions to me as well, and Cecilia, who had
+started walking towards the mansion with Belt, sent Mikhail off with a
+worried look, then turned back to look at me several times as if
+reluctant to leave.
 
 <br />
-"Gaaaaaaaaaaaaaaaaaaaaaa!!"
+"............"
 
-Dogon!!
+That person is my mother...? But there's no time to think about that
+now.
 
-The Kitty, who jumped out at the same time as Aria and was circling
-around the room, aimed for the moment when Aria attacked and confused
-the Chimera, and slammed a claw strike combat technique into its side.
+I saw off the two who might be my "relatives" as they entered the
+mansion, and chased after the other one... the one who might also be a
+relative, as he headed towards the castle walls.
 
-"Giiaaaaaaaaaaa!!"
+But, there—
 
-The Chimera immediately regained its posture, bracing its multiple legs,
-and turned its claws and fangs towards the Kitty.
+"—【Mana Shield】—!"
 
-The Kitty can't dodge, having just used its combat technique.
+\*Crashing sound!\*
 
-The Kitty and Aria both know that. That's why warriors create gaps for
-their allies and avoid being counterattacked.
+I instinctively deflected the mana attack launched at Mikhail with
+【Mana Shield】, but the 【Mana Shield】 shattered with a phantasmal
+sound like glass breaking due to the unexpected high power, and Mikhail,
+who had been protected, widened his eyes.
 
-That's why--
+"Aria!"
 
-"--Light Night--"
+"I'm fine."
 
-At that moment, Aria cut in between the two giants and deflected the
-Chimera's attack as if hiding the Kitty from it.
-
-<br />
-It's not as easy as it sounds. It requires the delicacy and courage to
-deflect a descending blade with your fingertips. Moreover, Aria used the
-light and darkness of Illusion Magic, using kicks and punches to fend
-off multiple attacks without even inflicting pain on the enemy, and
-withstood the Rank 7 attack.
-
-The movement doesn't use activation words, but it should be close to the
-Dagger Technique rank 5 combat technique \[Dancing Ripper\].
-
-Other combat techniques can't be stacked on the combat technique \[Iron
-Rose\]. But Aria reproduced the combat technique she had repeatedly used
-and ingrained into her body with only her senses.
-
-Even so, it should put a tremendous strain on her body. She can't use it
-many times.
+Was that attack an attack magic? But it wasn't an attribute magic, it
+was unattribute aether. Even so, it's different from combat skill.
 
 <br />
-Aria and the Kitty are both giving it their all. They're thinking about
-changing the battle situation and abandoning fighting with reserves,
-squeezing out their strength. If they had mishandled even one of the
-Chimera's fangs or claws in the current exchange, it would have been
-over there.
-
-That's why...
-
-"Not yet."
-
-Aria and the Kitty, and even the Chimera, had stopped moving for a
-moment, ...just a blink of an eye, in the current exchange.
-
-"--\[Rock Blast\]--"
-
-I, who was grabbing the Kitty's tail, fired Rock Blast from almost
-directly above at close range, and the rocks slammed in, pulverizing
-several heads.
-
-"Gigyaaaaaaaaaaaaaaaaaaaa!!"
-
-This time, the Chimera's scream due to damage echoed.
+'You fool, you've come to interfere in such a place, you adventurer
+woman!'
 
 <br />
-You weren't that wary of me, the one with the lowest combat power in the
-current situation, right? Because the enemy has intelligence, a surprise
-attack is meaningful.
+A group different from the unit attacking here now appeared, and a
+cloaked man riding a horse at the head of the group shouted that. I
+can't see his face. But, this voice is...
 
-At that time, in the briefest moment when Aria started moving, she also
-involved me in the movement and handed me over to the Kitty, who
-intersected with us on the way.
+"...Amol, is it?"
 
-Should I say I was captured rather than grabbed?
+Prince Amol. No, he should be the former Prince Amol now that the
+Margrave has reached this place.
 
-<br />
-"--\[cataract\]--"
+Amol, who was attacking from the rear, has reached here. If our arrival
+had been delayed even a little, we might have run into them.
 
-It's not over yet, you know?
+Amol caught sight of me standing on the castle walls, and jumped out
+alone from the group, flying into the air with his horse as if jumping
+over the unit that had been attacking earlier.
 
-The huge mass of water created in the air was slammed onto the rock,
-causing the rock to sink in further, and at the same time--
-
-Dooon!!
-
-The rock that had been embedded exploded, blowing away the Chimera's
-back.
-
-"――――――――――――――!!"
-
-A true scream filled the vast space from the Chimera's multiple heads.
+Amol's horse has been enhanced...
 
 <br />
-"Nero!!"
+"I will not forgive you! I will not forgive only you!"
 
-"Gaaaaaaaa!!"
+"Try and show me."
 
-Not missing that opportunity, Aria and the Kitty slashed and crushed the
-remaining heads.
+To intercept Amol, I also jumped off the castle walls and flew into the
+air.
 
-But at that moment--
+"！？”
 
-<br />
-"――――――――――――――"
+Amol's left arm extended as if to catch me off guard. A moment of
+chills. With a bad feeling, I didn't receive it, but kicked the air to
+change my position, struck that arm with the pendulum-shaped weight, and
+aimed at Amol's neck with the general-purpose type.
 
-A cacophony of multiple beasts.
+\*Clang!\*
 
-The grotesque monster is transforming into an even more grotesque form.
+Amol's right-hand sword knocked down the pendulum. Amol, who had his
+extended arm struck, lost his balance along with his horse, but even as
+he fell, he began accumulating unattribute aether in his returned left
+arm.
 
-Something huge jumped out from the Chimera's crushed back, blowing away
-the Kitty's giant body, and Aria barely dodged it, but was knocked down
-onto the floor.
-
-And I was--
-
-"Snow!!"
-
-Aria's voice echoed.
-
-At the same time, something huge protruded from the rear of the Chimera,
-and a giant log-like object sent my body flying.
+The mana attack from earlier!
 
 <br />
-"--!"
-
-Even the layered \[Rock Skin\], \[Veil\], and even \[Bless\] were peeled
-off in an instant, and I, with broken arms and ribs, coughed up blood as
-I flew through the air.
-
-"Giiii Gyaaaaaaaaaaaaa!!!"
-
-Immediately, the transformed Chimera came after me.
-
-A huge, twisted four limbs...
-
-A giant wing formed by bundling tentacles extending from its back...
-
-The form, carefully selected and specialized to fight, looked like a
-"dragon" with multiple heads.
+"—【Critical Edge】—"
 
 <br />
-It seems impossible for me to fight in this state...
+My combat skill, the flash of 【Critical Edge】, cut through the aether
+of the shockwave and attacked Amol. But Amol forcefully pulled on the
+reins with his arm strength alone, used his horse as a shield to get
+through the combat skill, and fell to the ground as is.
 
-Ah...
+I failed to finish him off. I instantly switched my awareness, and while
+running sideways across the wall using the blade-sickle type pendulum
+that I had hooked on the castle walls as a base, I launched the
+pendulum-shaped weight to shatter the ladders of the knights who were
+trying to climb the wall.
 
-"...Just as planned."
+The knights whose wills had been extinguished couldn't move on the spur
+of the moment without a direct attack on themselves, and fell to the
+ground from the shattered ladders without being able to put up any
+decent resistance.
 
-<br />
-I was sent flying behind the Chimera. Taking this much damage was
-unexpected, but the direction and distance were as expected.
+"You, how dare you, to His Highness!"
 
-The way adventurer parties fight as mages is different from my way of
-fighting.
+But, an aware knight mixed among them swung his spear at me, who had
+dropped Amol, from atop the ladder.
 
-To have such a fleeting "dream."
+"—【Pain】—"
 
-For me to fight for someone other than Aria--
+"Giga!?"
 
-<br />
-It's really not "me"...
+If they're conscious, 【Pain】 will work.
 
-<br />
-The way a mage fights is to crush everything with violence.
-
-<br />
-That's why I was sent flying in this direction.
-
-I knew from the start that even if I spammed rank 5 magic, it was
-unlikely that I could defeat the Chimera.
-
-So, with no decisive blow, I had the two of them give it their all to
-draw the Chimera's attention.
-
-In the meantime, I would get behind the Chimera as much as possible.
-
-The intelligent Chimera never allowed us to go to its sides or behind
-it, no matter how we moved in the fight.
-
-What would happen if I got behind the Chimera?
-
-Even in that isolated island dungeon, the Minotaur Murderer chased after
-me the moment I moved. The monsters bound to the dungeon had to do that.
-
-That's why the Chimera chased after me, who had been blown away to the
-rear, even letting Aria and the Kitty, who had shown an opening, go.
+While kicking away the screaming knight, I snatched the spear from his
+hand, stabbed it directly into the heart of a nearby knight, shattered
+all the surrounding ladders, and then ran back up to the top of the
+castle walls like a pendulum.
 
 <br />
-Thud!
+Oooooooh――……
 
-My body was slammed onto the floor, and even though I defended with
-magic, blood further stained my mouth, probably because a broken rib had
-pierced something.
-
-The Chimera approached me.
-
-But, too bad for you...
-
-I didn't even have to fly myself; the flying distance was enough.
+The soldiers of Melrose involuntarily let out a voice at me, who had
+crushed the enemy general and siege means in just a few seconds of
+offense and defense. But, it's not over yet.
 
 <br />
-"...I've come. Dungeon's 'Spirit'."
+"Damn youuuuuuuu!! Adventurer womaaaaaan!!"
+
+Amol, who had been dropped to the ground, echoed with voices of
+resentment. It seems he has a grudge against me for some reason, but
+it's just what I want if the attacks are concentrated on me.
+
+Even so, to fall to the ground with his horse and not be injured, he has
+indeed become an undead. More than that, I frowned at the "face" peeking
+out from the torn hood.
+
+"Did you give up on being human, too?"
+
+"That's insolent! I have transcended fragile humanity!!"
+
+Amol's head had become a writhing mass of tiny insects on the left half.
+That is... the guy who was among the undead. His left arm is probably
+the same. I don't know what would have happened if I had been hit by
+Amol's attack back then.
+
+I had a vague feeling ever since they started creating undead, but it
+seems he really did give up on being human.
 
 <br />
-I, who had been blown away, arrived faster than the Chimera could catch
-up, and placed my bloodstained hand on the innermost altar.
+He was an emotional man from the start, but I can only feel madness in
+Amol's eyes now.
+
+Judging from the feeling I got from our brief exchange, Amol's current
+physical abilities would allow him to cross the castle walls alone and
+wreak havoc.
+
+What is the reason he didn't do that? Is it to use the people in the
+mansion as bait to lure the Margrave, or has that transformation and
+madness degraded his intelligence?
+
+Or, is there another big reason...?
+
+<br />
+"Men, begin the attack! Drag that woman down from there!!"
+
+『Oooooooooooooooooo!!』
+
+The undead of the Second Knight Order raised their voices at Amol's cry.
+But as I thought, Amol didn't move himself and left the castle attack to
+his subordinates.
+
+<br />
+Should I strike out immediately? If I defeat Amol, the undead will
+probably stop moving as well. Still, I can't face a hundred undead and
+that Amol at the same time by myself.
+
+There are people I should protect behind me. If I start a fight without
+thinking, I'll be putting those people in danger.
+
+There's a way to survive if I cooperate with the knights of Melrose, but
+will they cooperate with me, an adventurer, even though I'm a Princess's
+guard?
+
+<br />
+"Miss Layton!"
+
+At that time, a guard knight who was attached to the Margrave appeared
+and called out to me.
+
+"The Margravine wishes to speak with you. Would you please come?"
+
+"............"
+
+Now that I've destroyed the siege ladders, there's some time. Still, if
+I leave this place, I'll be in trouble in case of a sudden emergency.
+
+"Aria, please go. Maybe... I think it's something necessary."
+
+"Mikhail..."
+
+Mikhail nodded quietly to me as I looked back at him. When I turned my
+gaze to the surroundings, the knights and soldiers of Melrose also had a
+bit of vitality return to their eyes, and nodded as if they knew
+something.
+
+"Please go. We will hold this place, we'll show you."
+
+"...Understood."
+
+<br />
+I leave it to their pride and head to the mansion with the knight who
+came to meet me.
+
+The Melrose mansion, which I'm entering for the first time, felt dim, as
+the light of the magic was kept to a minimum because it's currently in
+battle.
+
+"This way."
+
+Guided by the knight, who treated me with a more courteous attitude than
+he would to an ordinary adventurer for some reason, I proceeded through
+the residence and was led to a place in the back.
+
+It wasn't the Prime Minister's office or the reception room. If
+anything, it seemed like a place used by family members, but as the
+guiding knight left and I was left there, I looked around the room and
+was captivated by the large "portrait" hanging on the wall.
+
+This "woman" is...
+
+<br />
+"—That child is my daughter, who left home more than fifteen years ago."
+
+Cecilia's voice could be heard from the entrance. I had noticed that she
+had entered the room, but I couldn't take my eyes off that portrait.
+
+A woman with "pinkish blonde hair" lightly tied up. That person was... a
+little younger than my memory, a little older than I am now, and looking
+at me kindly.
+
+"...Mikhail also liked this picture. When he was little, if he couldn't
+see her, he would always stare at this picture."
+
+Just like me now...
+
+Cecilia came next to me, who wasn't replying, and looked up at the
+picture together.
+
+"The women of Melrose, Lord Belt's older sister and aunts, were all
+strong people. They led everyone and gave them hope... they were those
+kinds of people."
+
+Cecilia begins to speak in a slow voice, as if reminiscing about the
+past.
+
+"I liked the free way of life of those people, which I couldn't do.
+That's why this child also easily abandoned her status and position and
+flew away in order to fulfill her own desires. That child also had free
+"silver wings"."
+
+<br />
+A free way of life. Some people criticize it, but she taught me that it
+wasn't just selfishness, but always for the sake of someone.
+
+...My mother, even though she was one of the candidates for the Queen,
+stepped down for the sake of her friend who would become the Queen and
+descended into the city, marrying my father, with whom she shared her
+heart.
+
+<br />
+"A while ago, there was a story that this child's daughter, who had been
+missing, had been found. But, I couldn't think of that child as my
+granddaughter..."
+
+"...Why?"
+
+When I finally managed to speak, there was a silence as if time had
+stopped for a moment.
+
+"...Well. I didn't feel a "connection". Is that a vague reason? More
+than that, that child wasn't like "Melrose". And that child, and Lord
+Belt's older sister, all had very beautiful pink hair. The same color as
+the "Moon Rose"... and you too."
+
+"............"
+
+When I turned around at those words, Cecilia looked at me with tearful
+eyes as if enduring something... and gently, she embraced me.
+
+"I am..."
+
+"You don't have to say anything. Lord Belt was also saying that you are
+already a person with your own thoughts. If we try to restrain you, you
+will fly away and disappear..."
+
+"............"
+
+<br />
+Margrave Melrose. I learned for the first time that even that person,
+who had been drawing a line between us all along, was looking at me with
+such thoughts.
+
+I sought freedom in order to escape from the "fate (game)" that that
+woman sought. I sought power for freedom, and obtained the power to
+resist "fate".
+
+Fate has begun to change. There are no longer shackles here that would
+bind me.
+
+I might not have to pretend anymore. But... even so.
+
+I still have an opponent to fight.
+
+There's an opponent I have to settle things with.
+
+There are people I've decided to protect.
+
+<br />
+"...Ah."
+
+Cecilia let out a small voice as I touched her thin shoulders and moved
+away from her.
+
+I took out the amulet bag that had been given to me by my mother from my
+chest, took Cecilia's hand, and gently made her grasp it.
+
+"Not yet..."
+
+"Yes..."
+
+"Someday, surely..."
+
+"Yes."
+
+She—"Grandmother"—quietly nodded and strongly gripped my hand back at my
+clumsy words that couldn't convey my feelings.
+
+"...I'm going."
+
+I let go of that warm... the same kind hand as my mother's, and turned
+my back to her to head to the battlefield, and a small voice placed on
+that back reached me.
+
+<br />
+"Take care. ...Alicia."
+
+<br />
+When I finished talking with Cecilia and went outside from the entrance,
+the knights and soldiers who had been in the mansion greeted me there,
+and knelt on the spot.
+
+What are these people doing...? Before I could ask that, Mikhail
+appeared from among them, and he reflected me in his eyes with a
+different "understanding" than before.
+
+<br />
+"Aria. It's a formal command from the Margrave. The First Knight Order
+has already departed from the Royal Capital under the orders of His
+Majesty the King and Her Royal Highness the Princess. We will hold this
+place until their arrival, but... after all that's happened, we can't
+end things like this."
+
+There are already quite a few casualties on the Melrose side as well. I
+could see the anger in the eyes of the knights and Mikhail as well.
+
+"Everyone here will follow the instructions of the person with the most
+power in this place, you. ...Will you do it?"
+
+"Understood."
+
+That's what I intended from the start. I nodded back to Mikhail without
+hesitation and started walking, and the knights and soldiers opened a
+path and followed after me.
+
+<br />
+"We will defeat the rebel Amol and his army!"
+
+"“Yes!!"”
+
+<br />
+I could feel a spirit like enthusiasm, not just for a temporary
+commander, in the voices of those who replied to my words.
+
 
 
 ---

@@ -5,7 +5,7 @@ Demon Noble Girl \~Story of a Careless Demon\~
 Volume 10
 
   
- by Spring Days 
+ by Harunohi Biyori
   
   
  TL/Editor: Fans Translations/Berkomzx 

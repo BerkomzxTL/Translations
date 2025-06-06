@@ -2,7 +2,7 @@
   
 Volumes 1-3
 
-_Author:_ _Haru no Hi (春の日びより)_
+_Author:_ _Harunohi Biyori_
 
 _TN: BerkomzxTL_
 

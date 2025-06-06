@@ -2,351 +2,282 @@
 
 
 
-# 269 Chimera
+# 237 Distorted Holy War 4
 
-"......Chimera......"
+"——You lot!"
 
-<br />
-......I never thought such a being could actually exist.
-
-"Do you know about it?"
-
-"Sort of......"
-
-Overall combat power exceeding 7000...... It's not normal. As expected
-of Aria, she doesn't take her eyes off the Chimera, and the Kitty is on
-guard, growling.
-
-"I've only read about it in documents......"
+"Out of the way."
 
 <br />
-In the Leicester family's library...... Not a forbidden book, but it was
-written in some documents close to it.
+It wasn't just Kirkland who was searching for Count Melrose. Several
+knights were watching the highway in small squads of three, and the
+moment one of those knights spotted the Melrose party's carriage on the
+highway, the pink-haired girl running at the head of it beheaded him.
 
-An unnatural creature. Not a monster that transformed from an animal,
-nor a mythical beast species born as a powerful existence from the
-beginning. A guardian of treasure nesting in ruins. A legendary
-existence rarer than even the dragon species, which can only be seen in
-those situations.
+"——!?"
 
-Because of that, it is written in general books that it is a magical
-creature created with magic by the ancient elves who gave magic to the
-human race...... But in books closer to forbidden books, something
-different was written.
+The two knights with him noticed it as well, but they were tossed about
+by the girl raging like a storm and the pendulum blades flying by at
+high speed, and were instantly pierced through the heart with daggers.
 
-<br />
-Why isn't that fact generally known?
+Even so, the undead do not die. Given time, they could probably
+regenerate.
 
-If you think about it, it's obvious......
+However, if beheaded, they cannot raise their voices to call for allies,
+and if their hearts are destroyed, they will be unable to move for
+dozens of seconds.
 
-Human cities are built around "dungeons" to seal dangers and to obtain
-their blessings. What would happen if the will of that dungeon, the
-spirits that should give blessings, were known to create the greatest
-dangers?
+"Gugah——"
 
-I thought it was just one hypothesis, but seeing the situation so far, I
-became convinced that it was true.
-
-The Chimera is born only from the dungeon.
+The next moment, the warhorse ridden by the knight following behind
+tramples the fallen knight. There is no glory or pride in his death, and
+the Melrose knights, thinking of their former colleague who served the
+same country, are annihilated as just a monster, and close their eyes
+for a moment as if in silent prayer.
 
 <br />
-Gigi......
+『............』
 
-The crushed metal door behind us is closing. That's because the Chimera,
-the monster at the deepest part, recognized us.
+The Melrose knights gaze at the "girl" running ahead with complex
+feelings.
 
-"It doesn't look like the door will open again."
+The girl who is killing the monster called "Undead" that they themselves
+were overwhelmed by with just three people...
 
-The door at the deepest part is there for the final confirmation. So
-once you go through it, the door closes after a certain amount of time
-and will not open until you defeat the monster. But if the door is in
-this state, it's doubtful whether it will open even if you defeat the
-monster.
+If you work in the castle, you know her as "a Rank 5 adventurer who is
+Princess' confidant." The less skilled the person, the more they
+underestimated her, but if you had a certain amount of ability, you
+could measure her ability without even appraising her.
 
-If this happens, the only way to get out is for someone to gain the
-protection of the spirits and open the exit door. But to reach the altar
-in the back, it seems we have no choice but to defeat the Chimera.
+How did a girl who is not yet an adult obtain such power that she is
+praised as a "Dragon Slayer"?
 
-<br />
-"It's the same either way."
+However, the knights of the Melrose family... especially those who are
+old and knew the Count's youngest daughter, could not help but feel a
+sense of déjà vu in her hair color and features, rather than being in
+awe of her abilities.
 
-Aria, who had been wary of the appearance of a Rank 7, calmly began to
-loosen her body, as if having resolved herself.
-
-"You're right......"
-
-I came here for my "wish". If it's not granted, all three of us may die
-here. Even so, Aria says what we have to do is the "same"......
-
-I will never give up. I will crush everything that stands in my way and
-move forward.
-
-Really, she's reliable.
+The oldest knight among them, driven by something... approaching her on
+horseback as if following the figure of the master's beloved daughter
+who had disappeared, suddenly calls out to the pink-haired girl.
 
 <br />
-"Are you ready?"
+"...Miss Leighton, you will see the Melrose family's mansion ahead.
+According to the attendants, the rebels are already approaching. Please
+be careful!"
 
-"Anytime."
+Aria responds with a nod to the knight's words, and turns her emerald
+eyes, the same as their master's, forward.
 
-"Gaa"
+"I will eliminate any obstacles. You head straight to the mansion."
 
-There's no preparation because it's the first time we've faced this
-enemy. But we live our lives always preparing to fight. It's the same as
-always.
-
-"--Blessing--"
-
-I boosted the defense of Aria and the Kitty, who started moving, and at
-that moment, I pointed my finger at the Chimera from between the two who
-split to the left and right.
-
-"--Lightning--"
+"Yes, ma'am!"
 
 <br />
-Lightning erupts from my fingertips along with a flash of light.
-
-First, let's see how it goes. Honestly, the three of us alone exceed the
-fighting power of the forces that participated in the large-scale island
-dungeon.
-
-But, the monster at the deepest part at that time was Rank 6. Aria has
-defeated an attribute dragon that was Rank 7, but the situation and
-fighting power are different from that time.
-
-If there is a concern...... It's "me" myself.
+She is just a baron's daughter, even if she is a close aide to the
+Princess. Just an adventurer. Just a girl... but the veteran knight did
+not find it strange that he naturally returned a salute to the girl who
+was younger than his own daughter.
 
 <br />
-"GigyAAAAAAAAAAAAAAA!!!"
-
-Just before the lightning hit, the Chimera released mana along with a
-roar to reduce its power, and used countless beast halves overflowing
-from its body like arms to repel the lightning.
-
-Troublesome. It has intelligence.
+\*\*\*
 
 <br />
-"Over here."
+"I see it!"
 
-At that moment, Aria, who had approached, released multiple pendulums
-and smashed the monkey's head and tore the deer's throat apart.
+My "eyes" that see through the night see the mansion in the distance,
+and at the same time, I hear the faint sound of clashing swords.
 
-"Gigaaaaa!!"
+"I'll go ahead!"
 
-But even if you crush one or two of the multiple heads, the Chimera
-doesn't flinch. It immediately raises the wolf's upper body toward Aria
-and slams down as if crushing an insect.
+"Good luck!"
 
-But--
+With the words the knight gave me on my back, I accelerate further and
+rush to the place where the battle has already begun.
 
-"Gaaaaaaaaaaaa!!!"
+The place is called a "mansion," but it is like a small castle, and
+multiple knights are rushing to break down the castle gate. The number
+is about fifty on horseback... The number is probably smaller than I
+heard because the Count doesn't know where he's returning from, so
+they've dispersed the troops.
 
-With a moment's time difference, the Kitty slammed a powerful blow from
-the opposite side.
-
-Was that the \[Claw Strike\] combat skill?
-
-The Chimera's body was greatly gouged out by the combat skill released
-by a Rank 6 mythical beast. But in exchange, the Kitty, who had just
-used the combat skill, could not defend against the Chimera's attack due
-to the stiffness after the combat skill.
+Fifty is a lot... but maybe I can reduce it a bit now.
 
 <br />
-"--Critical Edge--"
+I erase my presence and close the distance with full-body enhancement,
+then jump onto the back of the horseman at the very end and stab his
+brain and heart with a dagger and knife.
 
-The next moment, Aria, dodging the Chimera's attack with the Kitty's
-blow, released a combat skill that pierced the Chimera from the opposite
-side.
+"Gah——"
 
-"Gugaaaaaa!!"
+"...【Spark】"
 
-With that blow, the attack on the Kitty was deflected, and the Chimera
-let out an angry roar.
-
-This time Aria cannot move due to stiffness. At the same time, the mana
-released from her whole body blew away the two who were approaching.
-Both of them, who lost their balance, could not defend against the
-attack.
+I light up the 【Spark】 living magic at the tip of the blade, as if to
+kill the internal worms, and pull the blade out as if gouging out the
+inside.
 
 <br />
-"--Ice Storm--"
+"Who are you!?"
 
-At the same time as the Chimera released mana, I fired off an ice storm.
+As expected, the surrounding knights notice me. I immediately throw the
+pendulum into the sky and shoot down the knight who shouted at me,
+knocking out his brain and his helmet.
 
-\[Ice Storm\] has no speed. There is a risk of involving allies because
-it is an area attack. That's why I was waiting for this timing.
+Even if they are undead, if they are making decisions with their head,
+stopping their brain will stop their movements. But before I can finish
+off that knight, another knight intervenes, and multiple spears attack
+me.
 
-The full-power \[Ice Storm\] with mana added to it attacks the
-defenseless Chimera who had just released mana.
+"——!"
 
-But--
-
-<br />
-"Nero, pull back!"
-
---Understood--
-
-<br />
-Aria and Nero take distance in that gap. I should have pursued the
-attack, but Aria took distance without hesitation, and Nero immediately
-followed.
-
-"......It's really troublesome."
+I exhale, and leaping up from the horse I killed, I dodge the spearheads
+as if dancing in the air.
 
 <br />
-\[Chimera\] \[Race: monster\] \[monster Rank 7\]
+"So you've appeared, 〝Cinders〟!"
 
-\[Magic Value: 287/350\] \[HP Value: 976/1180\]
+Does he know me? There was a knight who rushed from the front line.
+Estimated to be upper Rank 3... probably a company commander class.
 
-\[Overall Combat Power: 7306\]
-
-<br />
-Its HP hasn't decreased much. The last blow that Aria, the Kitty, and I
-released each had enough power to kill a Rank 5 lower-level monster with
-one blow.
-
-Its physical strength is high, but more than that, the Chimera, which is
-a fusion of multiple monsters, not only makes it difficult for physical
-damage to pass through, but also avoids fatal wounds from all attacks
-because it has multiple "eyes". The reason why its mana hasn't decreased
-much may be because it's absorbing it from the dungeon itself, which is
-dense with aether.
-
-The reason why Aria is frowning even as she retreats is probably because
-she also appraised it and had the same impression as me.
+The man shoots multiple arrows in a fluid motion. I, dancing in the air,
+cannot dodge those arrows -- normally.
 
 <br />
-Aria's compatibility with the Chimera is the worst. It doesn't seem to
-feel pain, and there are no clear vital points. Aria's weapons are too
-small for the giant body that is as big as a two-story house......
+"What!?"
 
-It's similar for me. Only the surface froze even with the ice storm.
-Small magic doesn't do much damage.
+I kick into the air, and with the reaction, I change my posture,
+twisting my body while dodging the arrows, and grab one arrow that I
+couldn't avoid.
 
-To defeat it, you need level 7 or higher magic.
+"I'll return it."
 
-There is a possibility if I use my blessing......
+I throw the arrow I grabbed like a throwing knife. But an arrow thrown
+in that state has no power to pierce flesh. Still, I gave a "voice" to
+it, to remind myself of the remnants of being human.
 
-"Snow."
-
-At that moment, Aria called my name as if she had read my mind.
-
-......I know. We made a promise.
-
-But......If you're going to die, I'll die instead.
+At the same time that the company commander reflexively dodges it, a
+slashing pendulum flies by from the side and slashes his eyes.
 
 <br />
-Bakin!
+"Guooooooooh!?"
 
-"GigyAAAAAAAAAAAAAAA!!!"
+Even so, the undead do not stop. All of my attacks are inflicting wounds
+close to fatal, but they are hardly painful.
 
-The Chimera roars as if breaking the frozen skin.
+"Don't let her 〝escape〟!"
 
-It's already started moving.
+When the company commander shouts an order, the knights who have lost
+their will come forward in place of the knights who still have their
+will. Knowing that they will lose their will if they die too much, the
+company commander tries to crush my escape route by using those who have
+died too much.
 
-Is it a battle of attrition......?
+Has the wound already started to heal? The company commander glares at
+me with one eye that has finished regenerating.
 
-Aria is thinking the same thing, so she hasn't used Iron Rose or
-Illusion Magic.
+"It will be difficult for us to kill you, but until Lord Amor returns,
+we will have you stay in this place!"
 
-If high-level magic is impossible, we will act as decoys and inflict
-small damage, and the Kitty will wear down the Chimera's HP.
-
-Whether our mana runs out, or the Chimera's HP runs out.
-
-We were about to start moving, thinking that, but we were made aware
-that that idea was "naive".
-
-There's no way a Rank 7 monster would be "normal".
+"...So \*that one's\* here too."
 
 <br />
-"GigyAAAAAAAAAAAAAAA!!!"
+Dandorle or Melrose? I thought he would be in either of those places, but
+Amor was here. That's just as well. I'll definitely finish him off with
+my own hands. But... that's not now.
 
-Don!!
+My hearing, which had been splitting off part of my consciousness,
+caught that sound, and I pointed my finger at the approaching knights.
 
-The Chimera, released from the freeze, suddenly shot out like an arrow.
-
-The Chimera, which had not moved from its initial position until now,
-uses dozens of monster legs to move at a speed exceeding that of a
-beast.
-
-<br />
-"--Iron Rose......Reality Breaker--!"
-
-It was Aria who was attacked.
-
-Aria immediately used Illusion Magic to make herself incorporeal and
-dodge the attack.
-
-It's not just a beast. Beasts jump around using four legs. But the
-Chimera, which has many legs, does not shake up and down, always kicking
-the ground, and gaining terrifying speed.
+"——【Phantom Pain】——"
 
 <br />
-"Gaaaaaaaaaaaa!!"
+Dark magic that only gives pain without substance... but Amor and his
+followers had also been investigating me, who was becoming an obstacle,
+and the company commander grinned with a blood-soaked face.
 
-"GigyAAAAAAAAAAAAAAA!!"
+"Such magic won't work on those without will--"
 
-The Kitty immediately enters to support. But the Chimera confirms it
-with the head in the back, and without changing its posture, it moves at
-a right angle and blows the Kitty away.
+At that moment, as if to interrupt his words, the trained warhorses all
+went on a rampage at once.
 
-"--Gaa"
-
-Blood spurts out from the Kitty's whole body after being blown away.
-
-Those are all the nearly ten jaws that were unleashed the moment they
-collided.
-
-If even fur with strength close to steel receives that much damage, then
-if I or Aria were to take a direct hit, our entire bodies would be
-gouged out and we would die instantly.
-
-Like us, the Chimera was also observing to measure our fighting power.
+I knew from the beginning that "pain" wouldn't work. That's why I fired
+the weakened 【Phantom Pain】 at the multiple horses they were riding.
 
 <br />
-"--Rock Blast--"
+"——Open the gates!!"
+
+There, the Melrose cavalry and carriage approached from the darkness of
+the highway, and when Mikhail, who was standing on the driver's stand,
+shouted at the castle gate, the soldiers on the castle gate who saw him
+hurriedly began to open the gate.
+
+From there, the Melrose knights who had been watching for a chance
+immediately jumped out and knocked the knights of the Second Order who
+were around the gate off their horses.
+
+"Hurry!"
+
+This is the only chance to pass through the surrounded castle gate.
+
+"——【Phantom Pain】——!"
+
+I also fired 【Phantom Pain】 at the warhorses of the Second Order,
+while jumping out of the confusion.
 
 <br />
-I stopped holding back and shot a barrage of exploding rock projectiles.
+"Don't let her get away!!"
 
-"!?"
+The company commander notches an arrow and releases it. The arrow aims
+straight at Mikhail, and I, entangling the pendulum's thread and jumping
+onto the roof of the carriage, cut the arrow down with a knife.
 
-At that moment, the rock broke the dungeon floor, and the Chimera's
-giant body, dodging by jumping over it, attacked me.
+"Aria!"
 
-"Gaaaaaa!!"
+"Mikhail, charge!!"
 
-Don!!
+At my shout, the soldier on the driver's stand whips the horses, and the
+carriage jumps into the gate, protected by the Melrose cavalry, while
+still in the midst of the warhorses running wild in confusion.
 
-The Kitty, who was still injured, tackled it from the side, and the
-speed of the Chimera flying through the air dropped slightly.
+"Close the gate! Hurry!!"
 
-The next moment, Aria, using Reality Breaker, grabbed me and moved away,
-and at the same time, the Chimera's giant body collided with the place
-where I had been, making a deafening roar.
+At Mikhail's voice, the knight who had jumped in jumps off his horse and
+jumps to the gate, and the soldiers and attendants who were there
+cooperate to close the gate.
 
-<br />
-"......You've got to be kidding me."
+At the same time, the sound of heavy objects colliding repeatedly echoes
+from the other side, and the knights and soldiers who were there rush up
+to the castle walls with weapons in their hands.
 
-It's so absurd that I can only let out a dry laugh.
+"Don't let them in!"
 
-"Do you have any ideas?"
+When the middle-aged knight shouts that, not only the knights and
+soldiers, but even those who cannot fight carry garden stones and bricks
+up to the castle walls.
 
-Aria, who released Reality Breaker, asked me that while holding me in
-her arms.
-
-"Well......"
-
-If it's really hopeless, I'll use my blessing. But Aria hasn't given up
-yet.
-
-Aria never gives up on her own, no matter what kind of enemy she faces.
-
-If I'm going to risk my life even if it means breaking my promise with
-her......
+It seems like it was really close. Just as I was about to follow them
+and climb up the castle walls--
 
 <br />
-"There's one thing I want to try."
+"Lord Belt, Mikhail!"
+
+I heard a woman's voice from the direction of the mansion, and I saw a
+graceful noblewoman accompanied by several maids running over there.
+
+"Grandmother!"
+
+Mikhail also called out to her, and the woman who hugged Mikhail took a
+breath of relief when she caught sight of the Count, and her eyes
+widened as if stiffening at the end of her gaze.
+
+"Sheryl..."
+
+"............"
+
+<br />
+The straight eyes staring at me...
+
+That "name"... belonged to my deceased "mother."
 
 
 

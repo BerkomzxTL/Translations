@@ -4,7 +4,7 @@
   
 (Additional Side Stories)
 
-_Author:_   _Haru no Hi_
+_Author:_   _Harunohi Biyori_
 
 _TN: BerkomzxTL_
 

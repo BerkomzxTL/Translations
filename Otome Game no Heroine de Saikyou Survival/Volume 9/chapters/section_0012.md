@@ -2,274 +2,445 @@
 
 
 
-# 272 The Role of a Magician
+# 240 Distorted Holy War 7
 
-《--...A deal? What are you saying?--》
+"——【Slash】——!"
 
-<br />
-In the world of spirits... the young spirit looks at me with a puzzled
-expression at my words.
+Feld's combat skill finally caught Amor, slashing his upper body as if
+gouging out his heart from under his arm. But——
 
-<br />
-《--Are you saying you will give something to me? The "humans" only need
-to wish. I will grant only one wish.--》
+"UOOOOOOOOOOOOOOOOOO!!"
 
-<br />
-"If it is a great spirit, then that may be so. However, my wish is big.
-I only have one wish, but it is big, so I am sorry."
+Even so, Amor did not die.
 
-When I say that and smile, the spirit nods quietly.
+As a mana stone, halved, fell from his torn heart, it suddenly emitted a
+strong light, and insects, drawn to it, forcibly reconnected his body,
+covering the mana stone completely.
 
-<br />
-《--Indeed, in the past, there were "humans" who made greedy wishes. But
-I have granted even those wishes. To a child who wished to obtain
-everything of a certain girl, I gave them the opportunity to contract
-with a mental lifeform that grants various wishes.--》
+"I will! Not! Lose!!"
 
-<br />
-For this spirit, mediating between humans and demons is about that level
-of significance, huh?
+"What..."
 
-"I want to combine several magic attributes. However, I don't want to
-trouble you with troublesome things. So, would you listen to my idea?"
+The moment Feld groaned and retreated from Amor, who was roaring and
+transforming, a gigantic, powerful arm slammed Feld down.
 
-<br />
-《--That much is nothing. To combine all attributes into a "Chaos"
-attribute--》
+"Kuh!"
 
-<br />
-"It won't go that far."
+Feld instantly blocked it with his greatsword. However, insects
+scattered from the powerful arm attacked Feld, trying to parasitize him.
 
-I cut off the spirit's words before they are finished. If it is said
-completely, it might be confirmed.
+"GAAAAAAAH!!"
 
-Besides, a Chaos attribute? Wouldn't that turn me into a demon? I am a
-little interested, but it will not end well anyway. I will probably be
-turned into an ugly imp.
+At that moment, an electric shock from Nero's whiskers struck Feld,
+incinerating countless insects.
 
-"I want you to combine the attributes other than Light and Darkness into
-two, making them "Lightning" and "Ice"."
+"Sorry, thanks for the save."
 
-When I state my wish, the spirit frowns slightly.
+Feld, white smoke rising from his skin as he suffered burns, offered his
+thanks, and Nero responded by lightly flicking his whiskers without even
+looking at him.
 
 <br />
-《--That is certainly greedy. You are saying two wishes. That cannot
-be.--》
+"I have! Been reborn! As a hero!!"
+
+Insects repaired Amor's wounded body. However, it clearly exceeded the
+scope of 【Gift】.
+
+And now, as a death-fearing "hero," his spirit, strengthened by
+【Gift】, surpassed the realm of humans, and the insects implanted by
+the demon responded, trying to remake him.
+
+The insects, which were supposed to regenerate Amor himself, increased
+in number, expanding as if devouring his flesh.
+
+A giant of insects——. Leaving only half of his head, Amor, whose entire
+body had become a collection of insects, exceeded four meters in height,
+abandoning his human body, laughing loudly in a voice that was no longer
+human.
+
+"Heh heh heh, this is! The strongest power!!"
 
 <br />
-"But if you mix too much, it will become Chaos. Besides, if you only
-make it "Lightning", "Earth" will be left over."
+【Amor Claydell (Left)】【Race:——】
+
+【Mana Value: 312/450】【HP:——/——】
+
+【Overall Combat Strength: 3240】
+
+【Super Regeneration】
 
 <br />
-《--Even so, the attributes will be combined into two. What more do you
-seek?--》
+——Retreat——
+
+"Hey!"
+
+Telling Feld to "retreat," Nero scattered sparks of electricity and
+headed towards Amor.
+
+"Coming, you beast!"
+
+"GAAAAAAAH!!"
+
+DOOOON!!
+
+Giant bodies collided, and the roar became a shockwave, blowing away the
+undead in the vicinity, crushing several caught undead.
+
+The insects cannot penetrate Nero's fur. He wouldn't know if they
+targeted his eyes or mouth, but Nero understood that he had to be the
+one to fight them, as he could incinerate them with electricity.
+
+However, Nero also realized that he lacked a decisive move to defeat the
+endlessly regenerating Amor.
+
+Only Nero and Feld can face Amor as he is now. That is why he had Feld,
+who possesses the "decisive move," retreat for the time being.
+
+"Damn it, I'll be right back!"
+
+Feld slashed through the undead of the Second Knight Order along the
+way, returned to the castle gate, and jumped into the knights of Dandorle
+who were suppressing the invasion, entering through the slightly opened
+gate.
 
 <br />
-"My wish is to combine them. With that, "Earth" would be discarded. Is
-it greedy to wish for something for me, who would be throwing away a
-precious attribute?"
+"Get him treatment immediately!"
 
-...It is definitely greedy.
+"【High Heal】!"
 
-If I abandon "Light" and "Darkness", I could have an easier negotiation,
-but if I lose those two, I cannot maintain my ailing body. I also
-considered strengthening those two, but I couldn't combine Light and
-Darkness like Aria.
+Dandorle's magicians, who rushed over immediately, treated Feld. 【High
+Heal】, which instantly regenerates stamina and flesh, could not restore
+the lost blood, but Feld gulped down the nearby fruit wine as a
+disinfectant, and stood up, holding his greatsword.
 
-"Light" and "Darkness" are Aria's powers, so I won't wish for that.
+"Lord Feld!"
 
-<br />
-《--In that case, I will give you back the "Fire" that you sealed in the
-past. Once something is sealed, it must be forged from the beginning
-again, but it is just right as a substitute.--》
+Earl Dandorle rushed over there, and Feld turned his grim face towards
+the castle walls.
 
-<br />
-Returning a useless attribute and making an offer that only puts
-pressure on my heart, I smile back.
+"Sorry. I'm going to the front lines soon."
 
-"Then, if I add that "Fire", wouldn't it become two attributes
-properly?"
+"But, can you defeat that?"
 
-<br />
-《--But even so, the wish is still two. That cannot be helped.--》
+It is no longer a battle between people. For Dandorle, who had lived in
+the northern frontier where there were many monsters, he thought it was
+easy to endure even if he couldn't defeat a hundred or so knights, but
+an enemy that wouldn't die even if killed was beyond the scope of the
+enemies he had imagined.
 
-<br />
-"No. I am losing "Earth", and I am also losing the new "Fire", you see?"
+"But, I'll try."
 
-I sincerely deceive as if this were the truth.
+In response, Feld gripped the hilt of his greatsword tightly, as if
+encouraging himself as a warrior.
 
-But there is no problem, right? The rules are up to you.
+Feld had been unable to fully attack the parasitic creature called
+insects. But Feld believed that it was not because of the difference
+between humans and monsters, but because his strength was insufficient.
 
-"This transaction is not about offering something to you. It is a
-"transaction" to fulfill one wish, to seek your mercy for me who is
-losing things."
+The dragon-horn greatsword, which he still cannot fully master. If he
+could master it, he could fight Amor as he is now, and he glared at the
+blade of the greatsword.
 
-<br />
-\*\*\*
+When he first slashed him, he saw a halved mana stone in Amor's chest.
+The mana stone is the undead's weak point. But why is it halved? Feld
+thought that was the secret of immortality.
 
-<br />
-"--【Paralyze】--"
+But it takes power to cut it directly.
 
-<br />
-The rank 5 Lightning magic Paralyze strikes the Chimera. As expected,
-it's impossible to stop all of it with something this big.
+"Please...lend me your power!"
 
-If I had only made the attribute Lightning, I might have been able to
-strengthen it a little more, but if that were the case, I might have
-received unnecessary things again and shortened my life.
-
-But, it's enough if it stops even for a moment.
-
-"--【Ice Whip】--"
-
-The still moving parts are entangled like thorns by the Ice Whip,
-pinning them to the floor.
-
-"--【Ice Storm】--"
+He spoke to his greatsword and gripped the hilt tightly, and the blade
+faintly glowed with the mana that filled his clenched fist.
 
 <br />
-The Ice Storm, used with dual-casting, increases in range and envelops
-the giant Chimera, freezing its entire body in an instant.
+"GAAAAAAAH!!"
 
-But--
-
-<br />
-\*Bakin!!\*
-
-" --GiiiiGaaaaaaaAAAAAAAAAAAAAAA!!"
-
-Regardless of the paralyzed and frozen surface shattering, the Chimera
-created countless arms from the inside and shattered the ice.
-
-Rank 7... it's really a monster. How did Aria and the Kitty defeat the
-Dark Dragon?
-
-But, that's fine.
-
-"Aria!!"
-
-I am not alone anymore.
+Nero, roaring, tore Amor with his claws, and the electricity from his
+whiskers burned the insects.
 
 <br />
-"HaaaaAAAAAAAAAAAA!"
+【Nero】【Race: Coeurl】【Phantom Beast Rank 5】
 
-"GaaaaaaaaaAAAAAAAAAAAA!"
+【Mana Value: 212/280】【HP: 361/510】
 
-Aria and the Kitty, who were saving their strength believing in me, jump
-out from the left and right and launch their full power attacks.
-
-"--【Reality Breaker】...【Dancing Reaper】--!"
+【Overall Combat Strength: 2136 (Body Enhancement in progress: 2704)】
 
 <br />
-A desperate blow that stacks a combat skill onto the Iron Rose, which is
-also a combat skill.
+Their combat power is almost equal. Nero is slightly inferior to Amor,
+but considering his combat experience, Nero seems slightly advantageous.
 
-The light of Reality Breaker is transmitted through the blade, and the
-black knife, which has become a "sword," cuts down new limbs as if
-mowing them down, like the dragon fangs that were its material.
+"Ugaaaaaaaah!!"
 
-And the combat skill of the Kitty, who is Rank 6, deeply tears apart the
-Chimera's body that has lost its defense.
+However, while the wounds Nero inflicts are instantly regenerated, Nero,
+wary of the insects' parasitism, had his greatest weapon, his "fangs,"
+sealed, and his stamina was gradually being depleted.
 
-<br />
-"GiiiigyaaaaaAAAAAAAAAAAA!!"
+He wants new "power." Nero earnestly thinks.
 
-<br />
-The Chimera's roar, like a death cry, echoes. But it's not dead yet.
+Beasts do not seek power. Beasts are "power" in their very existence,
+and they do not seek it.
 
-Even if we can win with one more push, that one push is not enough. The
-Chimera is an aggregate of countless beasts. Even if it dies, it will
-not die as long as there are living parts.
+Defeat in battle is simply because the enemy was stronger. He simply
+accepts that he was weaker than his opponent and does not resent them.
 
-Those living parts are aiming at the two who launched their combat
-skills. The Kitty, who has just released its combat skill, cannot move.
-
-Aria is no longer in a state to fight after stacking combat skills on
-top of combat skills.
-
-Aria's eyes, about to receive that attack, were reflecting "me," not the
-enemy Chimera.
+But Nero, for the first time in his life, abhorred losing. At that
+moment, a negative emotion other than anger was beginning to be born
+within Nero.
 
 <br />
-I am not alone. There is no need to fight alone anymore.
+"Nero!!"
 
-I have become an adventurer. And if this is an adventurer's party, the
-scout Aria is a ranger. The Kitty will probably become a warrior.
+He heard a voice calling, and Nero caught sight of it for a moment,
+Feld, who had retreated once, was on top of the castle gate, holding his
+jet-black greatsword.
 
-Both of them have the role of "chipping away" in the party.
+But his appearance is different from before. The strength of his body
+enhancement he wears is the same. However, some of his mana flowed into
+the greatsword, and the greatsword roared as if trying to drain his
+mana.
 
-Then what am I? I am a "mage." I use my wisdom and magic to reduce the
-danger to the party. What is the most important thing for a mage?
+"Guu!!"
 
-That is... overwhelming "destructive power."
-
-<br />
-Believe in yourself. Believe that you can do it. If you can't do it
-here, that feeling of vowing to live for Aria, and Aria's heart, will be
-wasted.
-
-rank 5 is not enough. But, I focused my attacks on Lightning and Ice,
-and perhaps because of that, the level of magic control, which had been
-stuck for a long time, reached 6.
-
-The reason I, who only believes in my own power, obtained 【Soul Thorn】
-was to use magic above my level. I, who have little life left, wanted
-the ability to "borrow" that power, believing that I would eventually
-reach that realm with my own power.
-
-And now, that time has come.
-
-I can... do it!
+The muscles of Feld's hand holding the hilt swelled to suppress that
+power. It felt as if the power emitted by the dragon-horn greatsword
+increased each time mana was absorbed.
 
 <br />
-"--【Lightning Bind】--!"
+"Gaa..."
+
+Feld cannot move to suppress it. But Nero, looking into Feld's eyes,
+understood what he was trying to say.
+
+That is the power of "Darkness." The dragon horns, the material of the
+greatsword, craved the user's mana in order to regain its original
+power.
+
+The earth dragon, imprisoned by humans, transformed into a dark dragon
+with anger and hatred.
+
+Emotions are governed by the "Darkness" attribute. Nero feels it within
+himself as well. He is indignant at his own inadequacy, and his body
+burns with a strong desire to gain strength. But it is not anger towards
+foolish people who defy him.
+
+——"Moon (Aria)"——. A light that illuminates the darkness of the night. A
+girl who controls light and darkness.
+
+Something he could not reach even if he stretched out his hand in the
+sky.... But she called Nero her partner and chose to fight together.
+
+There was a strong "feeling" for the girl he wanted to be with.
+
+That strong feeling even summoned a dark spirit, imbuing Nero with the
+same "Darkness" power as Aria.
 
 <br />
-Lightning thorns entangle the Chimera's giant body, continuously dealing
-damage with fierce lightning without disappearing. Feeling mana
-decreasing for the first time due to the enormous mana consumption, I
-still unleash the final blow.
+"GAAAAAAAH!!"
 
 <br />
-"--【Freeze】--!"
+"What!?"
+
+Nero disappeared, and Amor was shocked by it.
+
+"Guah!?"
+
+The next moment, Nero appeared and destroyed Amor's arm.
+
+"You bastard!!"
+
+Amor, shouting, strikes with his other arm, but Nero's figure disappears
+into Amor's "shadow," and Nero, who jumped out from the shadows of the
+undead around him, tore Amor's back with his claws.
+
+Dark magic, ——Shadow Walker——.
+
+However, Nero's dark magic, being a "phantom beast" that is not human,
+connected all the surrounding shadows and became a barrier surrounding
+Amor.
 
 <br />
-The Chimera freezes completely white--
+【Nero】【Race: Coeurl】【Phantom Beast Rank 5】
 
-\*Pikiiiin............\*
+【Mana Value: 320/330】50Up【HP: 520/520】10Up
 
-The lightning bind shatters the frozen Chimera into dust, and ice
-crystals dance in the dungeon like powdered snow.
+【Strength: 20 (30)】【Endurance: 20 (30)】【Agility: 18
+(27)】【Dexterity: 7】
 
-"This is... the end."
+【Claw Attack Lv.5】1Up【Martial Arts Lv.5】【Defense Lv.4】
+
+【Non-Attribute Magic Lv.5】【Dark Magic Lv.5】New【Mana Control Lv.5】
+
+【Intimidation Lv.5】【Stealth Lv.4】【Night Vision Lv.4】【Detection
+Lv.5】
+
+【Poison Resistance Lv.4】【Slashing/Piercing Resistance
+Lv.5】【Abnormal Resistance Lv.4】
+
+【Overall Combat Strength: 2541 (Body Enhancement in progress:
+3210)】405Up
 
 <br />
-.
+"You beast!!"
 
-\[Snow\] \[Race: Human Female\] \[Rank 6\] 1 Up
+Amor just screams as Nero disappears and reappears in an instant,
+attacking, and attacks the Second Knight Order, his subordinates, trying
+to erase the "shadows."
 
-\[Mana: 34/660\] 20 Up \[HP: 15/48\]
+"P-Please stop, Your Highness!"
 
-\[Strength: 7 (9)\] \[Durability: 4 (5)\] \[Agility: 14 (18)\]
-\[Dexterity: 10\]
+Even if they are undead, being crushed by Amor as he is now would be a
+fatal wound. At least the knights who still had a will became mindless
+corpses, and at that sight, a knight of the Second Knight Order tried to
+stop Amor from rampaging, shouting, but Amor glared back and roared
+back.
 
-\[Body Arts Lv.3\]
+"It's because you guys are dawdling! Take Dandorle down quickly!"
 
-\[Light Magic Lv.5\] \[Dark Magic Lv.5\]
+"...Ha!"
 
-\[Water Magic Lv.0\] \[Fire Magic Lv.0\] \[Wind Magic Lv.0\] \[Earth
-Magic Lv.0\]
+Even if they are undead, who knows what will happen if Amor, their
+source, takes their power. At worst, those without a will might remain
+as they are, and the Second Knight Order, those with a will, headed
+towards the gates of Dandorle with a desperate resolve.
 
-\[Ice Magic Lv.6\] 1 Up \[Lightning Magic Lv.6\] 1 Up
+<br />
+Nero is fighting Amor and can't move. Feld, who is suppressing the
+greatsword, believing that Nero will create an opening for him, was the
+same.
 
-\[Non-Attribute Magic Lv.5\] \[Life Magic x6\] \[Mana Control Lv.6\]
+"Damn..."
 
-\[Intimidation Lv.5\] \[Detection Lv.2\] \[Abnormal Resistance Lv.3\]
-\[Poison Resistance Lv.3\]
+Should he stop the mana flowing into the greatsword here and intercept
+the Second Knight Order? But if he did that, he wouldn't have enough
+mana to infuse into the greatsword again.
 
-\[Simple Appraisal\]
+While he was doing that, a knight of the Second Knight Order, who
+charged in without any defense, was pierced through the chest by a spear
+by a knight on Dandorle's side who was waiting in front of the castle
+gate, but still swung his broken sword and slashed the knight of
+Dandorle.
 
-\[Total Combat Power: 2376 (Magical Attack Power: 4688)\] 456 Up
+There is no time. In a situation where he has to make a decision
+immediately, the moment Feld bit his molars to make a decision——
+
+"Gogah!?"
+
+A huge spear, flying from the darkness, pierced the undead of the Second
+Knight Order.
+
+<br />
+"——'Spirits of Water and Wind!'——"
+
+At that "voice," the "Water" and "Wind" spirits, in the form of maidens,
+entangled the undead, slashing and blowing them away.
+
+Feld and the knights of Dandorle turned their eyes there. Dalton, who had
+released the spear on horseback, and Mira, who had released spirit
+magic, were there, and two cavalry jumped into the battlefield from
+beside them.
+
+"Finally, it's my turn!"
+
+Jesha, shouting, slashed the undead away with a single blow of her
+two-handed axe, and Viro, charging in with her horse into the gap in the
+battle line, ran around to further disrupt the battle line, and the
+people of Dandorle raised cheers at the sight.
+
+"——The 'Rainbow Sword'!"
+
+<br />
+Rank 5 adventurers, the "Rainbow Sword"——They, who had immediately
+started acting upon receiving a message from Feld, had arrived ahead of
+the First Knight Order.
+
+Even though there are only four of them, everyone is Rank 4 or higher,
+and the undead, who were still commanding with will, were agitated by
+the attack from behind.
+
+<br />
+"You guys!"
+
+At that sight, the moment Amor's attention was diverted for a moment——
+
+"GAOOOOOOOOOOOH!!"
+
+Nero, jumping into his own shadow and jumping out of Amor's shadow, tore
+him with his claws, and the shockwave blew Amor towards the castle gate.
+
+<br />
+"UOOOOOOOOOOOOOOOOOO!!"
+
+Seeing that, Feld unleashed the mana of the greatsword all at once and
+shot out like a cannonball.
+
+"Feld!!"
+
+Amor, noticing it, sent his powerful arm and insects towards Feld while
+losing his balance. However, the insects were corroded by the darkness
+that Feld wore and scattered.
+
+"——【Hell Slash】——!"
+
+Feld is the same as Nero. He knew his own inadequacy and sought power.
+In order not to leave a single girl in solitude, in order to stand there
+himself.
+
+<br />
+【Feld Ruein (Tangs)】【Race: Human Male】【Rank 5】
+
+【Mana Value: 94/240】15Up【HP: 317/370】
+
+【Strength: 17 (26)】【Endurance: 15 (22)】【Agility: 14
+(21)】【Dexterity: 8】
+
+【Swordsmanship Lv.5】【Spearmanship Lv.3】【Axe Combat Lv.3】【Throwing
+Lv.3】
+
+【Defense Lv.4】【Martial Arts Lv.5】【Stealth Lv.1】
+
+【Light Magic Lv.2】【Fire Magic Lv.2】【Non-Attribute Magic
+Lv.5】【Life Magic x2】
+
+【Mana Control Lv.5】1Up【Intimidation Lv.3】【Detection Lv.3】
+
+【Abnormal Resistance Lv.3】【Poison Resistance Lv.1】
+
+【Simple Appraisal】
+
+【Overall Combat Strength: 1594 (Body Enhancement in progress:
+2035)】100Up
+
+<br />
+"Guahhhhhhhhhhhhhhhh!"
+
+Feld's level 5 combat skill cut off Amor's arm and slashed Amor's giant
+body from shoulder to abdomen. But——
+
+"Too shallow!"
+
+Amor's mana stone is exposed again, but Feld's slash, slightly deviated
+by his arm getting in the way, only cracked the mana stone. But its
+power is not comparable to before, and the dark-attribute greatsword
+burns the insects from the wound and inhibits regeneration.
+
+Seeing that, Amor, just before Feld and Nero moved to follow up, roared
+with bloodshot eyes as if foaming at the mouth.
+
+"Not yet, not yet! Demon! Give me power!!"
+
+A red-black light overflowed from Amor's heart, and insects overflowed
+from Amor's mana stone, filling the wound, and the powerful arm that
+moved again repelled Feld and Nero.
+
+"—Gah!?"
+
+At that moment, a white hand grabbed the mana stone, which was about to
+be enveloped by insects again, from behind, and a black-haired girl had
+a delighted smile on her face.
+
+<br />
+"Gotcha♪"
+
 
 
 

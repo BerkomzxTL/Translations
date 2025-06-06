@@ -2,211 +2,383 @@
 
 
 
-# 261 Snow White of Thorns
+# 229 Undead
 
-Since the main story is complete, this will be the after story.
+When did it begin?
 
-------------------------------------------------------------------------
+Even before that, there were several "stories" on this continent.
 
-<br />
-The adventurer party "Rainbow Sword"――.
+A girl who entered magic academy, after several romances, crossed over
+to a desert country with a young man from a foreign land, becoming a
+bridge between the two countries and bringing peace.
 
-They are one of the leading Rank 5 parties in the great kingdom of
-Claydale on the Sars Continent, with a tradition spanning over a century
-and an unparalleled success rate in completing requests in the kingdom.
+A certain girl born in the desert, learning of the loneliness of the
+Demon King, even stopped the war between demons and humans by loving
+him.
 
-The best and the strongest――. However, the reputation cultivated over
-those long years was now about to become a new "legend" thanks to a
-certain young girl.
+A girl born into a viscount family, in order to avoid excessive
+interference from other countries, chose to become queen and become the
+king's shield.
 
-<br />
-"GIIIGAAAAAAA!!"
-
-The wyvern soaring in the sky bared its fangs and roared menacingly.
-
-Rainbow Sword received a request to investigate and exterminate a swarm
-of wyverns that had appeared in the monster habitat north of the kingdom
-and were approaching the kingdom's territory.
-
-However, the information was delayed, and the swarm of wyverns had
-already moved in search of feeding grounds. Rainbow Sword hurriedly
-caught up with the swarm heading towards the nearest town and began
-fighting just before the town.
+These were the stories of girls buried in the corners of history. And
+the story that begins in this era will have its destinies twisted by the
+appearance of a single flaw in those tales.
 
 <br />
-"Don't let a single one get to the town!"
+One day, a woman with knowledge of the future was born and began to move
+in order to interfere with the "stories."
 
-At the voice of the leader, Dalton, the party members began to act.
-There were six wyverns, and the town was only a short distance away.
+Boys and girls dancing with fate on a glittering stage. The woman,
+realizing the reality that rejects foreign elements, tried to become a
+girl, but instead lost her life, and yet, the lingering emotion she left
+behind twisted the fate of another girl as well.
 
-"――'Spirits of the wind'――"
+The girl who was supposed to become the heroine, by repelling the
+woman's emotion, only obtained the necessary knowledge and chose to
+resist fate.
 
-The spirit mage, Mira, cast "Wind's Protection" and simultaneously
-generated a "Tornado" that engulfed several wyverns.
-
-"GIIIGYAAAA!"
-
-The engulfed wyverns stalled and began to fall.
-
-Even though they weren't as strong as dragons, the wyverns' tough scales
-couldn't be cut by the wind's blades. However, if their vision was
-blocked, they would lose their way, and if their speed decreased, their
-wings wouldn't be strong enough to support their own weight.
-
-Even so, Mira, who had used high-level magic twice in a row, couldn't
-use magic for a while. One of the falling wyverns charged in, filled
-with anger.
+The girl who was not supposed to be involved in the story only obtained
+the remaining emotion and harbored an ambition to gain a great destiny.
 
 <br />
-"Like I'll let you!"
+A girl who even forgot her own name. Just as that woman with knowledge
+of the future discarded her name in this life in order to affirm her
+previous self when she regained her memories, the girl who obtained a
+new destiny also discarded her former self and chose the new name
+"Alicia."
 
-Dalton, clad in full mithril armor, stood in front of the wyvern.
+However, the fact that she still allowed herself to be called by the
+nickname "Licia" may have been the stubbornness of someone who couldn't
+abandon the "false" self.
 
-It was a giant of five meters in length. Even if its skeleton was
-lightweight for flying, it would still receive an impact like being hit
-by a cannon head-on. But――
+<br />
+The girl knew that she had "nothing."
 
-"UOOOOOOOOOO!"
+Only the beauty inherited from her mother, who worked as a night worker,
+remained with the girl, and from a young age, she naturally knew to rely
+on men and be protected by them.
 
-Dalton, a Rank 5 heavy warrior, took the hit.
+If she made use of that beauty, she would surely be happy. Her mother,
+who taught her that, also died in a monster attack, and in the harsh
+life of the orphanage, the girl constantly wondered what happiness was.
 
-"UORYAAAA!"
+Not enough food. Make them pay for it. The work is hard. Make others do
+it.
 
-From right next to him, Jesha, a mountain dwarf, slammed her magic steel
-two-handed axe into the wyvern's neck, severing its long, snakelike
+Relying on men. Making use of her beauty. She had been practicing that
+with older boys, but the girl felt that it was somehow different from
+the "happiness" she had heard from her mother.
+
+<br />
+In her original life, the girl would have followed the same fate as her
+mother.
+
+The girl longed for "happiness." Even if she didn't really know what it
+meant, she longed for the stories of marrying a prince and being happy
+that her mother's friends had casually told her when she was younger,
+and it should have ended with just longing.
+
+Then... the girl picked up a half-broken "magic stone."
+
+What seeped in from the cut she made with its corner was a woman's
+"emotion" built up over decades, and the knowledge to live in that world
+had disappeared somewhere, but it taught her the knowledge to rise to
+the top in that world... to become "happy."
+
+<br />
+"…Yes, I… want to become ‘happy (a heroine).’"
+
+<br />
+The girl has nothing. No power to fight, no funds, only her own talent
+and the knowledge of what is supposed to happen from now on.
+
+That is why the girl is not afraid of anything. In order to fulfill the
+dream of "becoming happy" that she dreamed of as a child... in order to
+be loved more than anyone else in this world, she threw her own life
+away as a stake and just ran straight ahead.
+
+<br />
+\*\*\*
+
+<br />
+There is suspicious activity in the Second Knight Order. I received that
+information from Theo, and I had returned to the vicinity of the royal
+capital.
+
+In this country, the Royal Knights protect the royal palace where the
+royal family resides, and the First Knight Order guards the area around
+the royal castle and the royal capital, centering on them.
+
+The Second, Third, Fourth, and Fifth Knight Orders are in charge of
+guarding the royal capital and its surroundings, but while the Third
+Knight Order and onwards are organized with consideration for
+dispatching to the provinces in case of emergency, the Second Knight
+Order has a strong aspect of being "guards" who maintain security in the
+royal capital, and for that reason, they are sometimes looked down upon
+compared to the other Knight Orders.
+
+Of course, being a guard is an important mission, and many knights are
+proud of being in a position that is most trusted by the residents, but
+it is also true that there are knights who do not like that.
+
+<br />
+The Melrose family, who are the margraves of the south, have a powerful
+navy, and the Dandorl family, who are the margraves of the north, have
+over two thousand knights to prepare for invasions and monsters from the
+north.
+
+Among the Second Knight Order, who are sometimes looked down upon
+compared to them, there are potentially "twisted" knights who were
+swayed by the nobles and attacked Elena, out of pride in protecting the
+security of the royal capital and from the surrounding evaluations.
+
+Even so, the majority of the knights are proudly guarding the royal
+capital, but there are definitely some "knights who are dissatisfied
+with the current situation."
+
+But even knights with such dissatisfaction will not act on their own.
+They are also knights of the kingdom and will not become rebels who draw
+their bows against the country.
+
+However, the story changes if there is someone who becomes a figurehead
+to lead them.
+
+<br />
+I also tried to investigate a little, but I couldn't find anything more
+than what the intelligence department had confirmed, even after
+investigating for a few days.
+
+Preparing weapons and equipment is natural for a knight. General
+equipment is provided by the country, and if you want something more,
+you have to suggest it to your superiors and be approved, or prepare it
+yourself.
+
+Each knight order is formed from three battalions. This time, the
+equipment is being updated for one company of about two hundred people,
+and it is seen as being with the consent of Prince Amol.
+
+But where is the budget coming from?
+
+<br />
+It is known that the source of the budget is Count Stanley. Baron
+Stanley, the Count's younger brother, is one of the battalion
+commanders, and it is considered to be a personal donation to him, but
+the Stanley family, which has few dependents, shouldn't have that much
+funding.
+
+But the problem is not the source of the funds, but their purpose. The
+intelligence department has not yet grasped that information. Even so,
+now that I'm away from Elena, there is a way to do it.
+
+If I don't know, I can ask someone who does.
+
+<br />
+"Stop, woman."
+
+"............"
+
+Four men appeared before me as I walked through the town in the Stanley
+County territory, which was only illuminated by starlight.
+
+They are dressed as commoners living in the town and only carry daggers
+for self-defense, but since I am also dressed as a "town girl" with my
+hair down and wearing a dress, the disguise is crude.
+
+"......What business do you have at this late hour?"
+
+When I asked that, the man who spoke to me first distorted his face and
+spat out the words.
+
+"That's what we should be saying. What town girl would be walking alone
+at this late hour? We know that you have been acting suspiciously in
+this town for the past few days. Tell us who you are working for."
+
+"............"
+
+I had been investigating the suspicious flow of funds and
+foreign-capital trading companies in this town, but it seems that it had
+been discovered.
+
+"Who are you? You don't look like guards."
+
+"You don't need to know that. We are the ones asking the questions."
+
+"What if I refuse?"
+
+"......You foolish heretic, it was unfortunate that we were in this
+place. Even if you are an intelligence knight, don't think that you can
+escape from us with that level of fighting ability."
+
+"......I see."
+
+<br />
+I understand now. At the very least, they are not town guards, but
+belong to an organization that was dispatched from somewhere and would
+be troubled if investigated by intelligence.
+
+From the content of the conversation, are they members of the Holy
+Church? They are hiding their identities, but judging from the
+construction of the daggers and their fighting ability, I can assume
+that they are Temple Knights.
+
+The source of the funds is the Holy Church... I have destroyed the
+trading companies that have been the source of funds for the noble
+faction in this area, so I understand that the "Saint" behind the Second
+Knight Order and Prince Amol has finally begun to move.
+
+<br />
+"Do you understand, heretic? If you honestly tell us everything, we will
+send you to God's presence without suffering."
+
+"......Is there no mercy?"
+
+"......You don't need to know that."
+
+"I see......"
+
+I judge that it is impossible to extract any more information through
+conversation.
+
+It is difficult to extract information from members of the Holy Church.
+More than that, I felt a strange sense of unease that was different from
+normal from the other three men who remained silent, apart from the man
+I was currently talking to.
+
+I've gone to the trouble of using magic to deceive them in various ways,
+but...
+
+"Then... I guess it's okay now."
+
+"What!?"
+
+When I released the appearance and fighting ability that I had been
+concealing with \[Illusion\], the Temple Knight's eyes widened for a
+moment.
+
+"I'm going to force you to tell me what's going on."
+
+"......You...! The 'Cinder Princess'!"
+
+As expected, they noticed once I showed my fighting ability.
+
+<br />
+"――Gyaaaaaaaaaaaaaaaa!!"
+
+At that moment, one of the men let out a beast-like roar, drew his
+sword, and lunged. While dodging the blade that aimed for my neck with a
+crude movement reminiscent of a beast, but still with the accurate
+trajectory of training, I kicked up the elbow joint holding the dagger
+with the blade of my toe.
+
+"Gyaaaaaaaaaaa!"
+
+"Ugoaaaaaa!!"
+
+Overlapping the man's scream, another big man attacked with a strange
+cry.
+
+That man's movements and actions were also inconsistent. Accurate
+swordsmanship ingrained in his body through training. But the person
+wielding it is acting in a way that I can't believe is sane.
+
+"Surround her!"
+
+The first man raised his voice to the men who were attacking separately,
+but the big man swung his dagger as if he hadn't heard it, and while I
+slipped the knife along that blade, I slashed the big man's defenseless
 neck.
 
-<br />
-"GIIIGAAAA!"
-
-The wyvern completely recognized them as enemies. The two wyverns that
-had fallen used their legs to cushion the impact just before hitting the
-ground, and approached with the speed of a running bird.
-
-In response, the giant swordsman――Feld leaped out and swung his black
-greatsword on his back.
-
-"TAAAAA!"
-
-The greatsword made from the horn of a Dark Dragon, combined with Feld's
-skill, cleaved through the subdragon's scales as if they were scraps of
-wood.
-
-"GIGAAAA!"
-
-At the same time, another wyvern bared its fangs at Feld. But at that
-moment, Dalton, who had rushed over, swung his mithril halberd,
-shattering the wyvern's head from its mouth to its brain as if slipping
-past Feld.
+The knife that the big man released before he fell, while momentarily
+regaining his sanity, pierced the forehead of the man behind him at the
+same time as the big man collapsed.
 
 <br />
-The wyvern still in the sky scattered poison liquid from the poisonous
-needle on its tail. But it was blocked by Wind's Protection.
+"You......!"
 
-Unlike the mythical beast dragons or elemental dragons, subdragons can't
-use breath attacks. When the wyvern showed a slight hint of fear at the
-ground attacks being blocked and the attacking power of the humans on
-the ground, at that moment, a small figure fluttered above the wyvern's
-head, her black skirt fluttering.
+One man was incapacitated in an instant, and the other two were also
+slashed to death. As I turned the blood-stained knife towards them, the
+first Temple Knight's eyes wavered slightly.
 
-Pinkish-gold hair shining in the sunlight. A black leather dress
-fluttering like a monstrous bird. And above all, the wyvern bared its
-fangs as if frightened by the girl――Aria's cold, murderous eyes.
+"――tsu!"
 
-"Hah!"
-
-Without flinching or cowering, the girl exhaled lightly, and her black
-daggers pierced the wyvern's eyes.
-
-The wyvern, having lost its sight, stalled and fell. But from behind it,
-another wyvern filled with anger turned around as if circling, and
-slammed its poisonous needle at the girl.
+At that moment, I turned around at the same time as a faint shadow
+passed through his eyes, and while dodging the blade that jumped into my
+face, I slashed the neck of the man I had just killed.
 
 <br />
-Hyun!
+"......What does this mean?"
 
-At that moment, the arrow fired by Mira, who had recovered, grazed the
-wyvern's face, and Aria, who had been waiting believing in it, leaped
-out towards the wyvern, which had stopped moving for a moment, and
-raised her knives and daggers made from the "Fangs of the Dark Dragon".
+"I told you, Cinder Princess... It was 'unfortunate' that we were here."
 
-"――【Dancing Reaper】――"
+The man said that while distorting his face, not with superiority.
 
-The fangs of the elemental dragon didn't care about the scales of the
-subdragon, and the wyvern, its wings and face slashed, fell screaming.
+Before my eyes, the man who had been pierced through the forehead and
+died, and the man who I had killed twice, slowly stood up, and another
+man also regenerated his arm wound and once again readied his weapon,
+letting out a beast-like groan.
 
-<br />
-Seeing that, the last wyvern lost its will to fight and fled. But in
-that direction was the town.
+"......Undead?"
 
-The soldiers who had noticed them from the watchtower on the outer wall
-fired arrows, but it was difficult to hit an object flying at high speed
-in the sky, and even if they did hit, arrows from archers of low skill
-level wouldn't be able to pierce the wyvern's scales.
+I have seen that phenomenon before. But when the first man heard my
+murmur, his eyes widened and he revealed his anger.
 
-The soldiers' faces twisted at the sight of the giant wyvern heading
-straight towards them. But there... in front of the outer wall
-surrounding the town, there was a single "girl".
+"Don't associate these people with the unclean! These people have
+devoted themselves to God, and have been granted great power by that
+person with the power of spirits!"
 
 <br />
-"――【Chase Lightning】――"
+Not undead? Granted "power"? Does that mean this is a \[Blessing\]?
+
+What is the point of becoming undead, even at the cost of intelligence?
+That is even more degraded than the zombies created by demons.
+
+The man who revealed his anger probably understands that as well. Even
+if they devoted themselves to God, what they are doing should be against
+God's teachings.
+
+They themselves despise that power. Even so, the reason they accepted it
+is... Is the Saint's power the cause?
+
+The power of immortality... If that's true, even just two hundred people
+would be a problem. But...
 
 <br />
-Flash of light. Multiple lightning strikes released from the girl struck
-the wyvern's wings, and the wyvern lost its balance.
+As I slowly held up the black knife and dagger, the Temple Knights
+gripped their weapons while groaning like beasts.
 
-However, the wyvern, flying with momentum even without the thrust of its
-wings, didn't stop. At that rate, the town would be damaged――just as
-they thought that, a white girl stepped forward quietly.
+"It's useless! We are empowered by the spirit--"
 
-Wearing a deep hood of a pure white robe, shaking her wavy pure white
-hair, the girl held out both hands as if standing in the way of the
-wyvern.
+"――\[Dancing Reaper\]――"
 
 <br />
-"――【Ice Whip】――"
+I activate the \[Combat Skill\] towards the three undead, interrupting
+the man's cry.
+
+A furious eight-hit combo unleashed from the left and right. But this
+isn't to slash the "enemy." It's just to return the "thing" that
+imitates a human in front of me to a "person"――My blade, unleashed only
+to destroy, severed the heads of the undead, split their skulls, and
+split their hearts, dissecting the vital points of the undead.
+
+"――The power of the spirits..."
+
+"Doesn't matter."
 
 <br />
-With how much mana was put into it, a huge amount of ice thorns were
-created centering on the white girl, entangling the wyvern, turning it
-into an ice object in an instant, and shattering the frozen wyvern.
+I have killed many so-called undead before. Among them, no one was truly
+immortal in the true sense of the word.
 
-Cheers erupted from the town's soldiers.
-
-In the fantastical world where the ice scattered like dust, the white
-girl shook her white hair as if smiling as she walked.
-
-<br />
-The Rank 5 adventurer party "Rainbow Sword".
-
-Their reputation was about to change from tradition to "legend" thanks
-to two girls.
-
-One is the dragonslayer, the pink-haired girl, "Cinders" "Iron Rose
-Princess"――.
-
-And――
-
-The newly joined Rank 5 mage... no one knows her real name. Only from
-her pure white attire and hair, people call her "Snow White".
+When the dissected flesh disappeared, leaving only the heart, and that
+heart also disappeared, leaving only a magic stone, the remaining Temple
+Knight knelt on the ground with an astonished face, and I coldly looked
+down at him, pointing the tip of my dagger to break his spirit.
 
 <br />
-------------------------------------------------------------------------
+"Rest assured... there is no such thing as complete immortality that
+defies God."
 
-<br />
 
 
-I would like to advance the after story at a pace of about once a month.
-
-The amount of text will vary, but thank you for your support.
-
-<br />
-Volume 4 will be released on July 20th. Pre-orders have also begun.
-
-Volume 5 is also in the midst of being heavily revised! This is
-scheduled for the end of the year.
-
-<br />
 
 ---
 [TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0002.md)

@@ -2,234 +2,344 @@
 
 
 
-# 274 Daily Life in the Royal Capital
+# 242 Distorted Holy War 9
 
-"Aria brought her, right? Then isn't it fine?"
+"I caught you~♪"
 
-"Well, it's Aria-chan, after all."
-
-"If Dalton decided, I have no complaints..."
+"What!?"
 
 <br />
-How unexpectedly easygoing...
+Amor, whose mana stone was exposed and grabbed after being slashed by
+Feld's combat skills, sees the figure of a black-haired girl with a
+faint smile fluttering there.
 
-The day after Aria went to see the princess, I met the other members of
-"Rainbow Sword."
+"Karlaaaaa!!"
 
-Is it really okay to be this simple? Well, it probably just means they
-trust Aria that much. ...Though some people seem a little intimidated.
+Amor, with his mana stone, the vital point of his life activity,
+touched, flails his arms in a flustered manner. However, his
+hypertrophied body, which prioritized simple attack power and defense,
+was unable to aim properly at Karla behind him.
 
-"――tsu"
+"You, were you aiming for my mana stone from the start!?"
 
-When I gave a smile to the tall and wide dwarf girl, she gave a strained
-smile and took a step back.
-
-<br />
-"Jesha, she's scary, but she's not a bad person, you know?"
-
-So saying, the vertically large muscle-man... I think it was Feld. He
-said cheerfully while patting Jesha and my heads.
-
-Whether he's broad-minded or doesn't care about details, it's not for me
-to say, but I couldn't help but stare, wondering how he could casually
-pat the head of a murderer like me.
-
-"D-Don't be ridiculous! I'm not scared!"
-
-That's right, isn't it? Otherwise, it'd be like I'm more dangerous than
-an attribute dragon.
-
-The other elf, Mira, isn't intimidated at all, like Feld. Or rather, I
-was surprised when she put a snack in my pocket without me noticing.
-
-Originally, Viro, one of Aria's teachers and a scout, was supposed to be
-here, but he's retiring and becoming a knight of the shadows in my
-place. Still, I think he could have at least come to the introduction...
+"That's right. Because you were troublesome."
 
 <br />
-"Where's Dalton?"
+If she had gone all out from the start, even the immortal Amor could
+have been burned to ashes. But that would have meant Karla sacrificing
+her own life as well.
 
-"He's been called by Her Highness. Viro is with him, so I guess they're
-going to make it so Snow doesn't have to stop by the guild to renew her
-registration."
+She has no regrets about "life" anymore. Even so, she had no intention
+of dying before plunging the royal capital into a sea of fire and blood
+and settling things with that girl.
 
-Feld answered Aria's question, resolving my doubts as well. Even so...
-Aria seems to trust him a lot.
+More than that...
 
-It seems Viro used to be something like the vice-leader, but with his
-retirement, Feld took over that role and gives us instructions.
-
-<br />
-"For now, Aria, just follow Dalton's instructions. And you don't have to
-go back to the academy, right?"
-
-"I was going to the academy to guard Elena. Elena also has work at the
-royal castle, so it seems I don't have to go back to the academy, so my
-job is done."
+"Being bothered by a trivial existence like you is unpleasant."
 
 <br />
-Well, that's how it is for upper nobles who have been learning from
-private tutors since childhood. The only reason upper nobles attend the
-academy is for social introductions.
+An enormous flame overflows from the hand grasping Amor's halved mana
+stone, burning Amor's life and body.
 
-The graduation ceremony is also held at the royal castle, and
-conversely, the princess probably has to work hard to restore everything
-so that next year's graduation ceremony can be held. Even so, the
-freshmen who thought they could meet her this year are probably pitiful.
+Both had wished for a "Blessing (Gift)" from the spirits, but while Amor
+sought power that didn't suit him due to his low self-esteem, Karla
+wished for an advance on the power she would eventually obtain.
 
-After confirming the instructions from Dalton, Feld took out a sealed
-letter.
+From the beginning, Karla had no intention of accomplishing anything
+with "someone else's" power.
 
-"Viro says to treat him to something next time."
+The reason people can't use magic above their own rank is because they
+lack the mana control and the techniques to construct the magic, causing
+them to consume several times the normal amount of mana.
 
-"Understood."
+But Karla had estimated that with the infinite mana of the "Soul Thorn,"
+she could use magic up to two levels higher.
 
-<br />
-Aria put the received sealed letter into her \[Shadow Storage\], and
-walked towards me.
+Karla was confident that in another ten or so years, she would be able
+to reach magic level 7 with her own abilities alone. It wasn't because
+she was a genius, but because she was a talented type, she could see the
+path to that point, but at the same time, she realized that she wouldn't
+live that long.
 
-"What was that?"
+That's why Karla, who was eleven years old at the time, came up with the
+idea of borrowing "her own power" that she would eventually obtain by
+throwing away her remaining life.
 
-"I asked him to investigate something. Let's go, then."
+She was able to have that resolve because of that girl -- Aria.
 
-She's still not good at explaining things. I can pretty much guess, but
-I lightly shrugged and walked next to her.
+She fought that girl and sought "salvation" in "death." Dyeing this
+country, which had ruined her life, in blood had also become a "stage"
+for "dancing" with Aria.
 
-<br />
-＊＊＊
-
-<br />
-"Aria-chan! What have you been doing for months!?"
-
-As soon as we entered the shop we arrived at, Aria was being scolded by
-a rock dwarf in a sequined dress, clacking loudly in steel high heels.
-
-With the royal capital in this state, it's normal to be worried if you
-haven't been able to contact someone for months. Though it's really not
-my place to say.
-
-This shop is the armory of the rock dwarf who also made my dress. If it
-was just an armory, there would be bigger and more skilled craftsmen in
-the royal capital, but if it's a craftsman who is good at balancing
-design and performance for young women, he's the best in this country.
-
-Inside the shop, there are also armor that really make you wonder, "Is
-this really armor?"... Armor that only covers the chest and waist, but
-does this rock dwarf wear them?
+Karla felt displeasure at the fact that a "fake" with no proper resolve
+was trying to step onto that celebratory stage as if it were their own.
 
 <br />
-"...Oh?"
+"Now, what are you going to do? "Your Highness, the Royal Brother"...
+You're going to die, you know?"
 
-In the back of the shop, a familiar black dress was displayed, and the
-shopkeeper, noticing my murmur, turned to face me.
+"Damn youuu!!"
 
-"Ah, that's a prototype of the dress Aria-chan wore to the party. I was
-thinking about whether I could make a new design, but..."
-
-After finishing lecturing Aria, the shopkeeper normally spoke to me, who
-was with her, but then stiffened when he saw me.
-
-"...Y-You, that height and build, could it be..."
-
-"...Where are you judging someone from?"
-
-"Ah, right."
-
-Just as the shopkeeper was about to reveal it, whether calculated or
-"natural," Aria took out that black thing from her \[Shadow Storage\].
-
-"Can you fix this?"
-
-"Aria-chan!?"
+In response to Karla's taunting words, Amor releases mana from his mana
+stone in anger to repel Karla. Amor's mana repels the flames and
+counteracts Karla's mana, but even if that prevents the destruction of
+the mana stone, the overflowing flames burn Amor's body, where the mana
+has thinned.
 
 <br />
-It was the dark dragon material dress she wore in the fight with me.
-It's amazing that it didn't tear even after that much fighting. But,
-from the creator's point of view, it seemed quite damaged, and the shock
-of meeting me seemed to have flown somewhere else.
+"... What's that?"
+
+"Jesha, don't let your attention wander!! There are still enemies!"
+
+Dalton shouted at Jesha, who muttered in amazement at the scene, as if
+to bring her back to her senses.
+
+It's not like Dalton isn't concerned. It's even more so for Feld, who
+had been fighting until then. Even so, he realized that the battle was a
+"battle that transcended the boundaries of humans," like Aria's battle
+with the Black Dragon, and he believed that concentrating on his own job
+was the pride of a professional adventurer.
+
+However, not everyone was able to compartmentalize so easily, and even
+in a situation where no one could interfere or even approach the clash
+of mana, the rainbow-colored sword, whether out of loyalty or instinct
+towards the higher-ranking undead, immediately switched its focus and
+struck down the confused Second Knight Order, who were trying to assist
+Amor.
 
 <br />
-"Oh, it's become like this! The self-repair has started with the stains
-still on it!"
+"Guooooh..."
 
-"And also..."
+As a result, that action became support for Karla, and seeing that, Amor
+let out a groan of impatience for the first time, putting his strength
+into desperately trying to shake Karla off.
 
-To the shopkeeper who was frantically examining the damaged black dress,
-Aria apologetically took out a white object.
+"What's wrong? Is that your limit? But you can rest assured..."
 
-"Hiiiiii!?"
-
-<br />
-That was the mithril thread dress I was wearing. It's a dress that
-wouldn't even be scratched by a level 1 attack magic, but that one was
-spectacularly stained with my blood, and it seemed that the self-repair
-had started with the blood still on it, and the shopkeeper was swaying
-like seaweed with both hands on her cheeks.
+But Karla, as if to further taunt Amor, whispered softly into his ear
+while gripping his mana stone.
 
 <br />
-"...Aaaagh, geez!"
-
-The shopkeeper was quite shocked, but suddenly revived, holding the two
-dresses and putting them into something that looked like a water tank in
-the back, and desperately pouring in something like chemicals.
-
-"Yeah, I'll do it! I'll completely restore them... No! I'll tailor them
-so you can wear them even when you're adults, so be prepared!"
+--I'll make sure to kill that parasite woman too--
 
 <br />
-Prepared for what...? As I was thinking that, Aria muttered.
+"Wha..."
 
-"We're technically adults this year, though?"
+At those words, the only remaining "human" face of Amor, who was halfway
+to becoming a monster, twisted.
 
-"Oh, that's right."
+There is only one person whom Karla uses a derogatory term for and whom
+Amor cares about. Realizing that, Amor's spirit, which had been more
+than halfway turned into a monster, returned to being human, and the
+human heart that yearned for her unleashed power beyond its limits.
 
-Both Aria and I will be fifteen years old this year. Nobles attend magic
-academy, so next year's graduation party will also serve as a
-coming-of-age ceremony, but commoners are seen as adults when they turn
-fifteen.
+People's feelings, whether it's pure love or twisted obsession, create a
+strong power.
 
-"Will it change that much..."
+"I won't let youuuu!!"
 
-I unconsciously rolled up the hem of my robe and looked at my own leg.
-...Still sickly thin as ever.
+Amor's power, released while shedding tears of blood and even
+sacrificing his soul, not just his life or lifespan, counteracted
+Karla's mana, which was trying to crush him, and gradually began to push
+it back.
 
-Even so, unlike commoners, we are growing with mana. For women, growth
-and aging will start to reverse around this time, so age fraud isn't
-that bad, but even so, our appearance is about sixteen or seventeen
-years old.
+"Kieaaaaaaa!!"
 
-My height hasn't increased much either, so will it really change that
-much? When I let out my thoughts, the shopkeeper glared at me.
+Crack!!
 
-"What are you saying! There are elves around you who eat too many
-sweets, and they become a little... \*different\* when they grow up,
-right!"
-
-"Ah."
-
-I see.... Certainly, it's normal for human, but compared to someone like
-Cerejura, it's a little sad for an elf, isn't it? Fufu.
+Amor's mana stone cracks, unable to withstand the clash of power and
+output. But at that moment, an enormous power overflows, finally blowing
+Karla away.
 
 <br />
-After that, the shopkeeper had us fix something that fit relatively well
-from the ready-made items, and decided to have proper ones made.
+Karla, who was blown away, brushes off the fragments of the mana stone
+that remained in her hand as if they were dust, and smiles faintly as if
+praising a child who had successfully counted to a number.
 
-"He said the alterations would be done in three days, so let's prepare
-by then."
+"Guooooooooooooooooooooooo!!"
 
-"Where are we going?"
+Amor tries to hold his body together with the cracked mana stone, but
+his tattered body does not regenerate, and the dying insects begin to
+peel off.
+
+"I will!!"
+
+Gradually, the color of reason is lost from Amor's eyes. Even so,
+whether it was the power of his remaining will or the heart that yearned
+for the girl he loved, his eyeballs moved and turned towards the royal
+capital.
+
+"Liciaaaaaa!!"
+
+Amor, letting out a voice as if he had lost his mind, began to run
+towards that direction with his collapsing body.
+
+No one could stop Amor, who kicked the ground with his hands and feet
+like a beast and ran towards the royal capital. Karla, who possessed the
+only power capable of stopping him in this place, saw him off without
+stopping him, and flew into the sky, fluttering her undulating black
+hair, and chased after Amor.
 
 <br />
-Aria said those words to me as we left the shop.
-
-I think Dalton said there were instructions. Since there's a possibility
-that I'll be exposed if I'm in the royal capital, maybe we'll receive
-some kind of request.
-
-Thinking that, I urged her to continue, and Aria said the destination.
+\*\*\*
 
 <br />
-"We're going to meet Samantha, the previous magician of Rainbow Sword."
+"Saintess-sama... are we not required to move?"
+
+A temple knight, who was standing by the side of the Saintess Licia in
+the temple of the Holy Church in the royal capital, asked in a hushed
+voice. The girl, who was gazing at the scenery of the royal capital from
+the window, quietly shook her head.
+
+"No, it is not necessary."
+
+<br />
+Within the Holy Church, the "Saintess Licia Faction," centered around
+the temple knights, the people at its core had grasped the actions of
+Prince Amor.
+
+What's more, Amor and the hard-liners, centered around the Second Knight
+Order, and the Temple Knight Order had secretly conspired to have the
+Temple Knight Order hold back the First Knight Order, which would likely
+sortie at the same time as Amor attacked the Frontier Count House.
+
+Saintess Licia is not involved in that operation. This is partly because
+she herself does not have the education to understand it, but also
+because Amor and the temple knights, who are devotees of the Saintess,
+deliberately did not involve her in such "trivial matters."
+
+However, it was that Saintess Licia who gave the demon instructions to
+make it so.
+
+<br />
+"... But, what will you do if His Highness fails?"
+
+The temple knight showed an uneasy face at Licia's statement that she
+would definitely not provide support.
+
+The purpose of this operation is to have Amor stand on the surface and
+weaken the power of the royalist faction in the form of a "rebellion."
+The Temple Knight Order is only a behind-the-scenes player and will not
+appear on the surface.
+
+Amor was planning to defeat the two Frontier Count Houses, then defeat
+the First Knight Order individually while weakening the knight order's
+strength, and then hide. Even if it looked like a rash act of drawing a
+bow against the royal family from the sidelines, the neutral factions,
+which were currently leaning towards the royalist faction, would
+hesitate to openly join the royalist faction.
+
+In the meantime, the nobles' faction would seize control of the knight
+order and the central government, giving Crown Prince Elvan the actual
+power as the next king, and the Holy Church would incite the people and
+push Licia up as queen, and once the nobles' faction seized actual
+control, they could do whatever they wanted.
+
+In noble society, no matter how "black" something is, it can be made
+"white" as long as you have the power to do so.
+
+<br />
+However, that is only if Amor can defeat Dandorle and Melrose. No matter
+how much power Amor has individually, victory will be difficult if the
+First Knight Order arrives in time.
+
+If he fails to defeat even one of Dandorle and Melrose, it was easy to
+imagine that they would not allow the Saintess's faction to commit
+Amor's outrage and would attack Crown Prince and Saintess Licia on that
+basis.
+
+Licia turned around and smiled gently at the temple knight who was
+expressing such anxiety.
+
+"It's alright. Let's trust in Amor-sama."
+
+<br />
+Saintess Licia doesn't think Amor can win. If it were the current Amor
+who had obtained the power of a demon, he might have had a chance of
+succeeding on his own, but Licia believed that even if she stopped the
+First Knight Order, the probability of Amor's rebellion succeeding was
+low.
+
+In order to increase that probability of victory even slightly, she had
+Amor split into two.
+
+If she used the power of a demon, she could create an infinite number of
+insect replicas that shared Amor's consciousness. However, without
+Amor's "mana stone," which could be called his main body, he would not
+be able to regenerate, and the more the mana stone was divided, the more
+the regenerative power would decrease.
+
+Even so, if there were enough of them, they would be a fighting force,
+but if the mana stone became smaller, it would become difficult to
+recognize it as Amor, even with the power of a demon, and as a result,
+there was a possibility that the Second Knight Order, as a pawn, would
+become unusable.
+
+More than that, Amor showed fear that the more fragmented his ego
+became, the more he would simply turn into a demon.
+
+In order to simultaneously attack the two Frontier Count Houses, they
+succeeded in dividing Amor into two by distorting his mind with the
+power of the demon and Licia, but even after doing so much, a certain
+victory could not be expected.
+
+The reason for this is because there are two girls that Licia recognizes
+as enemies.
+
+She had a firm premonition that at least that pink-haired girl would
+definitely get in the way.
+
+That's why she had decided to use her last "trump card" here.
+
+<br />
+Even inside the temple, this is not Licia's private room. Licia, who had
+been looking at the royal capital at night, walked away from the window
+and approached the only bed in the room, took out a small glass bottle
+containing liquid from her chest, and knelt down beside the bed.
+
+"Nathaniel-kun. Can you hear me?"
+
+"..."
+
+Nathaniel, with his pale skin and nothing but skin and bones, opened his
+eyes slightly and trembled his lips, but no words came out.
+
+No one who saw him now would think he was still a fourteen-year-old boy.
+He was in such a state that it was a mystery how he was still alive.
+
+A squeezed rag that had been constantly drained of his soul and life
+force... The reason Nathaniel had been kept alive until now was because
+he was a "legitimate contractor" of the demon. He, who had made a
+contract in much the same way as fraud, with no proper knowledge of
+demons, was still alive because the demon had recognized her as a
+"temporary contractor" because she would gain more benefits by colluding
+with Licia.
+
+Nathaniel had been kept alive by Licia's will. But that was about to
+end.
+
+<br />
+"I've come to say "goodbye" tonight."
+
+"..."
+
+Nathaniel's eyes opened at Licia's words. Even so, he couldn't move, and
+Licia looked at him lovingly, put the liquid from the uncorked bottle on
+her lips like rouge, and gently pressed them against Nathaniel's lips,
+who was trembling with fear.
+
+"---!"
+
+Nathaniel's body, which had not been moving, twitched, and the light
+disappeared from Nathaniel's eyes, which were shedding tears.
+
+At that moment, the maid who had been standing behind Licia like a
+shadow... the "dream demon" Colette smiled brightly and made her eyes
+shine crimson.
+
+<br />
+"Now, shall we begin?"
+
 
 ---
 [TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0013.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0015.md)

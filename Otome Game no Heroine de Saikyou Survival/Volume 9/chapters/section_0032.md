@@ -1,320 +1,538 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0031.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0033.md)
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0031.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 
 
-# 292 Killing Intent
+# 260 Final Chapter -- "My Story" --
 
-"GaaaaaaAAAAAAAaaaaAAAaaaAAAAAAAAAAA!!!"
-
-<br />
-The Fire Dragon looked down at us and unleashed a "Dragon's Roar."
-
-The roar, meant to select those who stood before it, shook the earth.
-Aria and the Hero only slightly frowned upon receiving it, but if the
-people in the rear were here, the Temple Knights and attendants would
-have panicked, never mind the "Rainbow Sword" members.
-
-I, however, watched the Fire Dragon with a sense of awe, neither
-frowning nor feeling fear at the "Dragon's Roar."
-
-"Oh... how beautiful."
+An unprecedented disaster befell the royal capital of the Claydale
+Kingdom. In the rapidly recovering capital, multiple merchant guilds
+invested their private funds to quickly reopen their stores, supporting
+the lives of the people living in the capital.
 
 <br />
-The Fire Dragon slightly turned its eyes towards my faint murmur. For a
-moment, the Fire Dragon's golden eyes and my purple eyes met, then
-quickly looked away.
+Of course, not all of them are acting out of goodwill as they are
+merchants, and there are many who are taking this opportunity to outdo
+other merchant guilds and expand their sales channels in the capital, or
+who are trying to gain connections with the royal family and upper
+nobility. However, due to these circumstances, daily necessities and
+food were sold at relatively low prices, and they were accepted by the
+people of the capital.
 
 <br />
-《--Child of man. Why do you commit such violence by intruding into my
-hunting grounds and domain?--》
+However, not all of the stores were originally existing merchant guilds.
+Although the number of victims was small compared to the damage, such as
+passionate followers of the Holy Church, there were still merchants who
+were engulfed in flames while trying to take out their household goods.
+In the place of these merchants, people claiming to be relatives that no
+one had ever seen before opened shops with the same names.
 
 <br />
-The Fire Dragon warned us in our language. It is said that high-ranking
-mythical beasts understand human speech, but to speak more clearly than
-a kitty is what one would expect from a mythical beast that has lived
-for many years.
+"......You know, instead of doing something so troublesome, we could
+just do it directly."
+
+In the basement of such a newly built merchant guild of unknown origin,
+the middle-aged man claiming to be the guild master frowned at the rough
+language of the man sitting on a wooden box.
+
+"Are you still saying the same thing, Wolf?"
+
+"Tch."
+
+The dozen or so men and women in the room also looked at him with
+similar glares, but Wolf didn't seem to mind their gazes and clicked his
+tongue annoyingly. The guild master swallowed the sigh that was about to
+escape him, and spoke again.
+
+"As I've said many times, 'she' is in this kingdom."
 
 <br />
-"Hey, Fire Dragon. We came to subjugate you because you were attacking
-human carriages."
+The disaster that struck the royal capital—the attack of Greater Demons.
 
-Unafraid of the Fire Dragon's pressure, Hero Klein replied in a
-nonchalant manner.
-
-What nerve. Even Neidhardt and Douglas were tense, but Klein wore a
-smile as if he wasn't thinking about anything.
-
-Aria... when I glanced at her, she was wary of the Fire Dragon, but she
-also gave me a brief look with her eyes, as if she had heard my murmur.
+It is said that three Greater Demons, who appeared from somewhere, left
+gruesome scars on the kingdom, and that two young girls defeated these
+demons.
 
 <br />
-《--You entered my domain, and I warned you, but they entered again. Do
-you blame me for responding? Child of man.--》
+"One of them died, right? That means there's only one troublesome one
+left."
+
+It has been investigated that of the two girls who defeated the demons,
+the black-haired girl died.
+
+With the death of the black-haired girl, as well as the head court
+magician, in the battle against the demons, the number of 【Rank 5】
+individuals possessed by the Claydale Kingdom had decreased.
 
 <br />
-The Fire Dragon asked further, showing no anger at the Hero's attitude.
+The goal of their dark organization from the Solhorse Kingdom was to
+investigate the situation in the Claydale Kingdom...and to assassinate
+the First Princess, who had become the new Crown Princess.
 
-As expected of a high-ranking mythical beast, it is rational. One might
-even say gentlemanly. I heard that the Fire Dragon is the most
-hot-tempered of the attribute dragons on this continent, but rumors are
-unreliable.
+As far as the spies who had infiltrated in advance had investigated, the
+First Princess's abilities were high enough to overturn her childhood
+evaluations, and the upper echelons of the Solhorse Kingdom, who had
+been using the First Prince's abilities as a standard, were thrown into
+a panic.
 
-According to the Fire Dragon, it warned them, but the Zentol Kingdom
-still invaded the Fire Dragon's territory, so it gave them a lesson, is
-that right?
+The princess, who had ousted her brother with her abilities and
+political skills and become the Crown Princess, had also been involved
+in the previous destruction of a spy organization, and the upper
+echelons, who saw the princess as a danger, decided to eliminate her by
+taking advantage of the chaos caused by the demons destroying the
+capital.
 
-If you ask me, it's the Zentol Kingdom's own fault. Even though we are
-enemies who survived its selection, the Fire Dragon is still trying to
-communicate with Klein. If there were rational people in the upper
-echelons of the Zentol Kingdom, conflict... well, that's impossible.
-Humans are greedy and...
+However, in the Claydale Kingdom, there is a girl said to be the
+princess's right-hand woman, who defeated the demons. For that reason,
+Wolf, one of the leading Rank 5s in the Solhorse Kingdom, was drafted
+and participated in this operation.
 
-"Foolish."
-
-"Snow..."
-
-You don't have to worry, Aria. It's just my opinion.
-
-<br />
-But Klein shrugged exaggeratedly, without breaking his nonchalant
-attitude to the Fire Dragon's claims.
-
-"That's a problem. Can't you somehow withdraw?"
-
-《--Enough. Humans have broken the thousand-year co-existence.--》
-
-"We can't withdraw either."
-
-Neither side was willing to back down. ...Or rather, it seems like Klein
-was intentionally trying to fight.
+Even so, it is a last resort for someone like Wolf to assassinate the
+princess by force. If the princess were assassinated in such an obvious
+way at this time, it would be difficult for everyone to escape the
+capital alive, and it would escalate tensions between nations.
 
 <br />
-In the first place, the Hero's party came to this Sars Continent because
-the Spirits sensed an evil presence, and the reason we decided to
-exterminate the Fire Dragon was to confirm whether Aria had truly
-defeated the Dark Dragon, who was the most likely candidate, and to
-confirm her strength.
+"......Tch."
 
-However, Aria argued that if the Fire Dragon was not evil and could
-communicate, we should confirm its intentions.
+Wolf, who had originally risen through the ranks with only his martial
+prowess and was not a member of the underworld, didn't like that.
 
-But there's something I don't quite understand...
+He was originally an adventurer, but his bad behavior stood out, and he
+was about to be executed for killing a civilian, but he was saved by the
+Solhorse dark organization, who valued his abilities. He has no
+complaints about that, but Wolf, who has a high sense of self-respect,
+is dissatisfied with the current situation where his abilities are not
+being used.
 
-When another evil being appeared, the first reason we were called was to
-welcome Aria, a hero-class, as an ally. The purpose was to defeat the
-Fire Dragon to confirm her strength, and because Aria didn't feel the
-need, Klein made up the previous reason.
-
-It seemed to me that Klein personally wanted Aria as a companion.
-Showing Aria's strength is to convince the Holy Church, but if the
-"Hero" earnestly desires it, that should take precedence over the Holy
-Church's opinion.
-
-Even if Aria refused, Klein could continue to put pressure on the
-nation, as he said at that time. So why is Klein so insistent on
-subjugating the Fire Dragon?
-
-I don't think it's possible that this Klein is trying to please the
-Cardinal, even though he's his sponsor.
-
-While I was doing such a casual analysis, the conversation continued.
+(I'm the strongest...)
 
 <br />
-"In that case, I'm afraid you'll have to suffer a little."
+Wolf's overall combat power exceeds 2000, and he has a sense of pride
+that he is the strongest among the Rank 5s in the Solhorse Kingdom.
 
-《--Foolish child of man. You will regret that choice.--》
+That's why the "rumor" that the "girl" who defeated the Greater Demon,
+even though they did it together, was the strongest irritated Wolf, and
+that caused his emotional restraints to come undone.
 
-<br />
-At that moment, the Fire Dragon's pressure increased, and its golden
-eyes shone with a fierce light.
+"Just leave it all to me! Then I'll decorate Solhorse's royal castle
+with the princess's head!"
 
-"GaaaaaaAAAAAAAaaaaAAAaaaAAAAAAA!!"
+"Wolf!"
 
-The Fire Dragon roared. But it wasn't the "Dragon's Roar" that selects.
-This is...
-
-<br />
-"Wyverns!"
-
-Neidhardt, who noticed it first, raised his voice. Hearing his voice, we
-also noticed it and looked up at the sky. We saw several Wyverns, which
-are sub-dragons, descending from the sky, as if the Fire Dragon had
-summoned its kin.
+The guild master raised his voice at Wolf, who had openly broken the
+unspoken rule of not touching on direct topics even among comrades, at
+that moment--
 
 <br />
-"Wait, Klein. The Fire Dragon didn't intend to fight!"
-
-Aria stopped Klein, who was about to start a fight. Douglas, with his
-arms crossed, turned his gaze towards her voice, and Neidhardt, who had
-already drawn his sword, frowned.
-
-If interests don't align, then fighting is unavoidable. But in this
-case, the Fire Dragon didn't attack us, and the Zentol Kingdom was
-clearly at fault for breaking the thousand-year coexistence.
-
-This is a problem between the Fire Dragon and the Zentol Kingdom, and it
-has nothing to do with us.
-
-However, Klein, who was trying to fight the Fire Dragon and was stopped
-by Aria, turned around with only his eyes while facing the Fire Dragon.
-
-"It's useless, Aria-san. After all, there's no way to understand an
-'animal.'"
-
-At that moment...
-
-"Aria!"
-
-"Snow!"
-
-We called each other simultaneously. As Aria picked me up and jumped
-back, I created a wall of ice to stop the shockwave.
-
-I thought we would fight, but to go all out from the start, huh.
+"--We've got the statement ."
 
 <br />
-"GaaaaaaAAAAAAAaaaaAAAaaaAAAAAAA!"
+In the basement where only comrades should be, a cool, young girl's
+voice echoed.
 
-Klein used magic with his sword? It might be a combat technique, but the
-Fire Dragon avoided it by flapping its wings into the sky, releasing an
-enormous amount of light and power. But it doesn't seem unharmed.
+"--tsu!"
 
-<br />
-"Klein! The Wyverns are heading to the rear!"
+At that moment, a female scout, one of their comrades, instantly
+pinpointed the location of the "voice," took out a hidden weapon, and
+attacked.
 
-Douglas, who had also dodged the shockwave like us, shouted.
+Her combat power, as a Rank 4, exceeds 1000. Even if she isn't on Wolf's
+level, she should have been able to immediately dispose of an ordinary
+spy.
 
-The shockwave that Klein unleashed blew away the Wyverns that were
-attacking, and those Wyverns were trying to head to the rear.
+\*Bokin\*...
 
-"Hmph!"
+The sound of snapping a dried branch wrapped in a wet cloth could be
+heard, and the figure in a black coat, moving forward as if sliding and
+disrupting one's senses, grabbed the woman's neck and snapped it in an
+instant, reaping her life.
 
-Douglas swung his greatsword and killed one of them with the greatsword
-he threw. But most of them had already flown into the sky, and no
-attacks would hit them anymore.
+Tension ran through the members of the Solhorse Kingdom's dark
+organization.
 
-And beyond that...
+"Ugaaaaaaaaaaaaaaa!!"
 
-"Aria."
-
-"Let's go!"
-
-<br />
-The rear where the "Rainbow Sword" and Temple Knights are... I can't see
-it from here, but I saw a different group of Wyverns circling in the sky
-around there, separate from the ones that came here.
-
-At the same time as calling his kin here, he sent Wyverns to the rear as
-well, huh.
+Among them, Wolf, without a moment's hesitation, let out a roar and
+leaped out, wielding his twin swords.
 
 <br />
-"Would you wait a moment? It won't come to that."
+(It's this one!)
 
-Klein stopped us from heading to the rear to support them.
+The moment he saw her, Wolf understood that this was the "strong one,"
+his enemy.
 
-Without me and Aria, the "Rainbow Sword"'s annihilation power is greatly
-reduced. I think they can hold out with Dalton and the others, but there
-are more than ten Wyverns circling in the sky, so we can't be careless.
+Intoxicated by the exhilaration of being able to fight a strong person
+and the pleasure of surrendering to violence, Wolf's grip on the hilts
+of his twin swords tightened.
 
-"Neidhardt-san, could you support the rear?"
+"I'll kill (to) you!!"
 
-"Klein!?"
+The twin swords, swung down with the best timing and the best speed,
+attacked the intruder. Impossible to dodge, impossible to block. But--
 
-Neidhardt, who was holding the Fire Dragon in check, raised his voice at
-those words. And Douglas also raised one eyebrow slightly at the Hero's
-instructions.
+"What!?"
 
-"What are you planning? If your comrades are in danger, you should have
-those girls retreat."
+Slender hands extending from the coat deflected the twin swords as if
+pushing them away with bare hands.
 
-<br />
-Douglas was reluctant to put young women like us on the front lines.
-Klein, showing his usual unreadable smile, slightly exuded "pressure" at
-Douglas, who said it would be better to have us retreat to the rear.
+Wolf didn't know. No, even if he knew, he couldn't understand.
 
-<br />
-"From the beginning, the purpose was to see Aria-san's power. Or is the
-'Hero' not being listened to?"
-
-"...Understood."
-
-"Douglas... damn it."
-
-Douglas, who frowned for a moment and nodded at the "Hero"'s words,
-sheathed his sword without resisting any further.
-
-"I'll be back soon!"
+Combat power is just a guideline. No matter how high your stats are, no
+matter how many honed techniques are engraved in your soul, the
+experience gained in the space between life and death is only stored in
+your heart.
 
 <br />
-The swordsman Neidhardt left this place to support the rear. We can see
-our power, but can we fight the Fire Dragon with this force, missing one
-hero-class person?
+The next moment, the young girl's lithe leg kicked up Wolf's chin, and
+Wolf, who was pierced by the blade of her toes from under his chin,
+collapsed without even being able to demonstrate his true ability,
+without even realizing that he had died.
 
-"Nero...?"
-
-In the worst case, there's also the option of having Nero go to Dalton
-and the others, but Nero didn't respond to Aria's call and even erased
-the black kitty phantom.
-
-There's no way Nero would be scared of the Fire Dragon. If that's the
-case, is it wary of something? If the target isn't the Fire Dragon...
+At the very end, Wolf's hand, which dropped his sword, grabbed the
+intruder's coat. And the guild master, who witnessed the "pinkish-golden
+hair" gleaming in the revealed darkness, widened his eyes as if he had
+seen something unbelievable and muttered the name of the "strongest"
+that spies in surrounding countries feared in a trembling voice.
 
 <br />
-"Now then. The obstacles are gone."
-
-Klein, who had been holding back not only us but even the Fire Dragon
-with a strange pressure, muttered.
-
-"What do you mean?"
-
-Klein grinned, taking us and the Fire Dragon into his view, at Aria's
-question about the meaning of those words.
-
-"'I' couldn't stand it anymore."
+"--Iron Rose Princess--"
 
 <br />
-The aura of Klein began to change little by little, and the Fire Dragon
-even became wary of the "Hero" as a sense of evil increased.
+   ＊＊＊
 
 <br />
-"This world is my toy box. When the Spirits found me, they acknowledged
-it in exchange for me becoming the 'Hero.'"
+Half a year had passed since the battle and destruction in the royal
+capital.
+
+The damage to the capital was considerable, but with support not only
+from the nation but also from multiple noble families, reconstruction
+was progressing at a surprising pace.
+
+This was under the leadership of Elena, who had become the new Crown
+Princess, having secured the cooperation of the Fandora Theocracy, where
+the Holy Church's main temple is located. Although it has not yet been
+officially announced, she made her presence known to the nobles and the
+people.
 
 <br />
-The world is a toy box...? I don't know what that really means, but the
-Spirits... especially the pure Spirits who have no contact with human
-intentions, unlike the Spirits of the dungeons, have no interest in
-human society.
+To be honest, there are parts about the Theocracy and the Holy Church
+that I can't believe. But you have to swallow it and decide how far to
+shake hands. That will change depending on political decisions.
+
+The "Saintess" recognized by the Holy Church communicated with demons
+and endangered even the royal family. The Holy Church was also a victim
+in that regard, but they had no choice but to voluntarily accept Elena's
+demands and build a cooperative system, or the Holy Church would risk
+losing its appeal within the Claydale Kingdom.
+
+Elena and the Holy Church reconciled. The Holy Church had its own
+intentions, but the Claydale Kingdom also needed the cooperation of the
+Holy Church in order to eliminate the intelligence organizations of
+surrounding countries that were trying to create a base in the country
+under the guise of reconstruction support.
+
+As a result, Elena gained the backing of the largest religious
+organization on the Sars Continent and at the same time succeeded in
+suppressing the influence of the Holy Church, solidifying her position
+as Crown Princess.
 
 <br />
-"I'm tired of it already. I can't do whatever I want. I don't want
-annoying comrades just because I'm a hero. That being said, if I
-eliminate them arbitrarily, the support from the Holy Church will
-disappear, what a pain."
+Offers of support came from neighboring countries: the Condor Kingdom,
+the Ills Duchy, the Solhorse Kingdom, and the Gordle Duchy.
 
-"Klein...? What are you saying?"
+The Solhorse Kingdom, which had sent the organization I had previously
+destroyed, was trying to create another spy organization in the capital,
+but I was asked by Elena to destroy it.
 
-Douglas, the taciturn man who remained in this place, was also confused
-and pressed Klein, hearing the "Hero"'s sudden words that disparaged
-even himself and the Holy Church.
-
-"...Ah, Douglas. You see, I..."
+It was a rough solution of pretending that it never happened, but with
+the cooperation of the Holy Church, it wasn't difficult, and the kingdom
+didn't have the leeway to gather evidence and legally eliminate them.
 
 <br />
---Slash!!
+"Lady Alicia. I would like you to become a 'Saintess'..."
+
+Hiram, a guest from the Holy Church who had come from the Theocracy,
+said such a thing.
+
+He had come here from the main temple to certify Licia as a Saintess,
+but with the temple in the capital destroyed and many of the upper
+echelons who were charmed by Licia having died, he remained in the
+kingdom to manage those on our side.
+
+The temple chief, Nathaniel's grandfather, had survived, but after
+awakening from the demon's dream, he regretted being deceived by the
+demon and letting his grandson die, so he stepped down from the position
+of temple chief.
 
 <br />
-"Kle...in?"
+"I've told you before that I have no intention of doing so, haven't I?"
 
-As Klein's right hand blurred while still smiling, Douglas, who was
-spurting blood from a diagonal cut, collapsed, and a blood-stained sword
-was in Klein's hand.
+Hiram, not intimidated but simply looked at by me, caught his breath for
+a moment and lowered his head.
+
+"If possible, please reconsider... You, who have been recognized by the
+spirits, are destined to become a 'hero' recognized by the Holy Church."
 
 <br />
-"You see, I... want to kill."
+The reason why the Holy Church is cooperating even to the point of
+accepting all of Elena's demands is not only to protect the position of
+the state religion in the kingdom, but also because of me.
 
+That is not a political story but a matter of religious doctrine.
+
+According to the Holy Church's old legends, a Saintess is not originally
+just certified, but is one of the "heroes" who fight alongside the
+"brave" who appears in times of crisis.
+
+A hero is someone who has been recognized by the spirits, and he thought
+that I, who witnessed that battle and defeated the demons, was one.
+
+After the heroine, it's a "hero"...
+
+I sighed softly, took the Solhorse Kingdom dark organization's
+documents, and left the Holy Church's temporary facility.
+
+"Lady Alicia!"
+
+Hiram's voice called out as if to stop me, and I turned around slightly.
+
+"I am 'Aria'--just an adventurer."
+
+<br />
+   ＊＊＊
+
+<br />
+After the battle with Karla, I returned to being an adventurer again.
+
+However, having appeared on the public stage as Alicia Melrose, I was
+unable to return to being a free citizen, and my registration is with
+the Melrose family.
+
+In other words, I am in the same position as Feld, who is an adventurer
+while having a noble title in order to avoid succession disputes.
+
+But I am in a subtle position, more free than Feld while being more
+unable to escape noble society than him.
+
+<br />
+The reason for that is the "strength" I cultivated in order to escape
+the constraints of nobility.
+
+Those who witnessed that battle, and the knights of the Melrose family,
+began to call me by the moniker "Iron Rose Princess," and I became a
+feared existence that no noble family could touch, and at the same time,
+I instilled in the nobles the fear of the possibility of becoming their
+greatest enemy if I ever fled abroad.
+
+I wouldn't be troubled. But my grandfather, my grandmother... Elena
+would be troubled.
+
+Therefore, instead of attending the academy, I was given time called a
+"study period" in order to avoid those entanglements, and I was given
+five years of freedom.
+
+Even after those five years are over, I will not return to being a noble
+lady, but I will be able to decide on a new job as an adventurer and
+something else.
+
+Even now, if Elena asks me to do something, I will act as an adventurer,
+like in the case of the Solhorse Kingdom spy organization, but in five
+years, I will begin taking over the dark organization as Sera's
+successor, and in ten years, I will become the queen's adjutant and
+combat handmaiden.
+
+But this is not a fate decided by someone I hate.
+
+It is my will to be with Elena.
+
+That vow is still alive within us.
+
+<br />
+"Hey, Aria! Hurry up!"
+
+"Yeah, I'm coming."
+
+Jesha, who had gone ahead, called out to me, and Nero, who was in the
+shadows, used a black cat phantom to shake his tail from my shoulder to
+tell me that my vision had been looking far away.
+
+Recently, there have been many jobs in the city, and Jesha seems to be
+somewhat excited about going on an adventure that feels like an
+adventurer for the first time in a while.
+
+This time, it is the extermination of several Wyverns that are said to
+be appearing in a monster habitat in the north. Wyverns have the habit
+of hoarding treasures, although not as much as Earth Dragons, so she is
+probably expecting something.
+
+Elena, who knows Jesha, smiled wryly at Jesha's enthusiasm and gladly
+sent her off.
+
+<br />
+That Elena has officially become the Crown Princess, and it seems that
+applications for betrothal as a royal consort have already come from
+other countries. Since it is from the Khalfaan Empire, it is probably
+him, whom I know, who has finally made a move.
+
+According to Mikhail, Rockwell also seemed to be in love with Elena, but
+he is the heir to the Dandorl family, and it seems to be quite
+complicated.
+
+It would be good if Rockwell's younger sister, Clara, could inherit the
+family estate, but she acknowledged her sins, and together with Elvan,
+who also acknowledged his sins and stepped down from the position of
+Crown Prince, it had been decided that she would rule the Dandorl-owned
+territory as a viscount.
+
+They will probably not appear on the public stage in their generation,
+and they will live a life unrelated to the glamorous world they once
+knew.
+
+Some say that decision is lenient, while others say it is strict, but it
+seemed to me that they were even relieved to become middle nobles.
+
+Mikhail, who will become Elena's adjutant, began studying under my
+grandfather to become the prime minister and head of the dark
+organization, and Theo is also working hard every day to become a senior
+knight of the dark organization as his assistant.
+
+The last time I met them, they both said, "I'm not giving up yet"...
+
+And--
+
+Karla was officially confirmed dead, and it is said that one of the
+court magicians who also participated in that dungeon capture, who was a
+distant relative of the Leicester family, inherited the Leicester
+family, which had no successor.
+
+There is no tombstone for Karla. That's because she doesn't want one.
+
+<br />
+"Okay, let's get going!"
+
+When the carriage reached a position where it was no longer safe to
+proceed, we, the new "Rainbow Sword," began to act on Dalton's command.
+
+The reason for the "new" is because Viro, who was the scout, has
+officially retired from being an adventurer and has become a knight of
+the dark organization. He was still young enough to continue for a while
+longer, but I heard that it was because his fiancée, Mary, who used to
+be a receptionist, became impatient.
+
+I think it must be very hard to work in the dark organization now, but I
+felt that Viro would be able to do it well.
+
+<br />
+The heavy warrior, Dalton, the swordsman, Feld, the warrior, Jesha, the
+spirit user, Mira, the scout, me...the six of us, including our new companion, a Rank 5 magician, became the new Rainbow Sword.
+
+"Can wyvern scales be sold for as much as earth dragon scales?"
+
+"They're decent as materials. About the difference between gold and
+silver."
+
+"Can you eat the meat?"
+
+"That's just lizard meat."
+
+There's not much tension...
+
+While listening to the conversations of my comrades, I look up at the
+sky.
+
+The endlessly spreading blue sky.
+
+When I was young, I was weak and always running away--and even after I
+gained strength, I kept fighting something.
+
+The days of chasing and being chased, of hurting and being hurt, are
+over.
+
+From now on, I am "free." All freedom and inconvenience will be
+decided by my will.
+
+<br />
+\*Tan\*--
+
+"H-hey."
+
+It seems I was also feeling lighthearted for some reason, too. Feld, with a somewhat
+bewildered voice, said to me as I placed my hands on both his shoulders
+from behind and climbed on top of him.
+
+"As I thought, Feld's view is wide."
+
+"Is it?"
+
+When I smiled and looked down at him, Feld grinned and started running
+with me on his back.
+
+Voices of exasperation could be heard from behind.
+
+At the edge of my vision, a magician girl wearing a white robe hood
+shook her wavy white hair and chuckled.
+
+The blue sky that stretches endlessly...
+
+My heart will no longer waver.
+
+<br />
+From now on, my "story" will begin.
+
+<br />
+------------------------------------------------------------------------
+
+With this, the main story is complete. Thank you for your long
+companionship!
+
+It was supposed to end a little shorter, but before I knew it, it became
+such a long process.
+
+The showdown with Karla and the final episode were decided from the
+beginning, and the preparation for this included Aria's pendulum and
+boot blades, and Feld's gesture of carrying her on his shoulders.
+
+At first, it was an experimental novel to see if this form would be
+accepted, to the extent that if there were people with the same hobbies,
+but I received more support than I expected, and it even became a book.
+
+Thank you all very much. The fully written Volume 4 will be released in
+July, so please check it out as well.
+
+<br />
+The main story is over, but Aria's adventure continues. It will be an
+after-story like a side story, but instead of the weekly serialization
+like before, I will take a short break and then continue it leisurely
+with a monthly serialization.
+
+I'm thinking it might be good to write it from the magician girl's point
+of view instead of Aria's perspective...
+
+Who is that girl...?
+
+To tell the truth, I've been so busy with multiple book projects that I
+haven't had much time for new works!
+
+I have so many ideas, and there are one-shot stories scattered in my
+folder (laughs).
+
+<br />
+As new work candidates...
+
+1 Heartwarming (psychotic)
+
+2 Pleasure (psychotic)
+
+3 Serious violence (sweet)
+
+These three seem to be suitable for serialization. None of them are
+normal lol. The rest are more suitable for short stories.
+
+<br />
+Well then, everyone, I'll see you next in this continuation or in a new
+work.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0031.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0033.md)
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0031.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 

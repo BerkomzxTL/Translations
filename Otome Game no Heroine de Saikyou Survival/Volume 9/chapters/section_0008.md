@@ -2,243 +2,305 @@
 
 
 
-# 268 The Monster in the Deepest Part
+# 236 Distorted Holy War 3
 
- Aria, the Kitty, and I were continuing to conquer the large dungeon.
+"......You've shown yourself, Karla! The undead vermin nesting in our
+nation!!"
 
- The conquest itself is going smoothly... or so I should say.
-
- The deeper we go into the large dungeon, the more complicated it
-becomes, and the conquest speed should decrease unless we know the
-correct route, but on the contrary, the progress speed has increased.
-
- The number of monsters is decreasing noticeably. I think that, as we
-predicted, the monsters from the lower levels are heading to the deepest
-level.
+"Fufu... How heroic, Your Royal Highness. But I wonder which one of us
+is the 'insect'?"
 
 <br />
-"Snow."
+Amor, unfazed by Karla's flames, threw off his burning cloak and laughed
+loudly at Karla's contemptuous words.
 
-"...There are corpses remaining."
-
- For a moment, I didn't realize I was being called, and my reply was
-delayed for a moment, but I understood what Aria wanted to say.
-
- In dungeons, monster corpses don't remain. There's a story that the
-dungeon absorbs them, but in reality, I think it's because other
-monsters eat them, leaving not even bones behind.
-
- The further we go, the less we see monsters, and instead, we started
-seeing monster corpses.
-
- But, why are there monster corpses? Why are the monster corpses left
-uneaten? That is...
-
-"As expected, the culling has begun."
+"Fuhaha! A madwoman like you wouldn't understand! I have obtained a
+great power!"
 
 <br />
- Let's review our monster knowledge.
+Amor's body had transformed, his right half becoming a writhing mass of
+insects, as if cut from the center. However, those who knew him before
+would have noticed that his spirit was also vastly different from the
+Amor of the past.
 
- Monsters are the end result of animals that have mutated from absorbing
-too much aether. Even so, there are monsters that have mutated to such
-an extent that they don't seem like ordinary animals, and it is said
-that they have evolved by repeatedly passing on their monsterized state
-through generations.
+Previously, he lacked confidence, feeling confined to the royal family,
+and constantly tried to be of service to others in an attempt to protect
+his own heart. In that sense, Amor, who was always trying to read
+people's faces, had been affirmed in everything by a certain girl,
+indulged in carnal desires that drowned his reason in mud, and obtained
+a Gift that shattered his fragile human "shell," transforming his
+personality to the point of arrogance.
 
- Some of them were mutated by the magic of ancient elves, or are
-creatures from realms with dense aether, such as the fairy realm, but
-putting those aside, ordinary monsters are naturally aggressive and
-attack and devour other creatures.
-
- It is said that monsters attack humans because it is efficient to prey
-on humans, who are numerous and absorb a lot of aether, but I think it's
-because humans have a high probability of possessing "magic stones."
-
- Confirming that speculation, all the monster corpses lying around in
-the dungeon had their hearts devoured.
-
- Perhaps by eating the magic stones in the heart, the monsters are
-trying to evolve themselves?
+Environment... a guide... can change a person this much. In a possible
+future, he could have been guided by a true saintess and become the
+Archduke who supported the next king...
 
 <br />
-"In that case, do humans also become stronger by eating monster magic
-stones?"
+"That's right! I am not the me of before! I have become stronger! Strong
+enough to defeat you!"
 
-"I don't think that's possible. Humans are animals, not monsters, and
-monsters don't even look at dead magic stones extracted from the heart."
+\*Thump!\*
 
-<br />
- That's too much gluttony. I think they can't absorb the power unless
-they devour the magic stone along with the still-beating heart. But...
+Amor, leaping out as if shattering the scorched earth, enlarged his
+"insect" right arm and punched Karla.
 
-<br />
-"...Could we manage a monster the size of a rabbit?"
+In terms of physical ability alone, he surpasses a Rank 5 warrior. He
+also possesses the skills of a former Rank 3 warrior, and his strike
+accurately hits the floating Karla, but Karla is no mere human.
 
-"............"
+\*Goon!\*
 
-"Gaa."
+A sound like heavy iron clashing echoed, causing several knights to
+flinch involuntarily.
 
- ――Stop――
+Neither magic nor sorcery. With mana control honed at the cost of her
+life, Karla momentarily "mana-weaponized" the sole of her shoe to block
+Amor's fist, and ascended further into the sky—
 
- ――Fool――
+"—Lightning—"
 
-<br />
- Oh dear, Kitty is angry at me. Did it think we might actually do it? It
-seems that directly absorbing them is impossible unless you're a
-monster.
-
- However, I don't think humans aren't absorbing them at all.
-
- The magic stone extracted from the heart of a dead monster is already
-dead. I don't know what the difference is, but when a monster dies, that
-"something" dissipates, and the person who defeated it may be
-unconsciously absorbing it.
-
- Otherwise, there's no reason why a human who has reached Rank 5 can
-fight griffons and wyverns on equal terms.
-
- Well, it's just my speculation. Like daily meals, I think it's
-meaningless unless you ingest the right amount.
-
- If you mistake the right amount... perhaps ogres and orcs are mutant
-species that became monsters from the human race in that way.
+Lightning released from Karla's fingertips from the heights of the
+heavens struck Amor.
 
 <br />
- ――Fool――
+"Ugoooooooooooooooooooo!!"
+
+However, Amor did not die even after being pierced through the center of
+his body. He let out a bestial roar, and charred insects fell away, with
+new insects regenerating Amor's body as if filling the wounds.
+
+"Kieeeeeeeeeeeeeeeeeeee!!"
+
+Amor, with bloodshot eyes, screamed strangely, and this time his right
+arm, stretched out like a whip, attacked Karla like a snake.
+
+"—Storm—"
+
+In response, Karla used a Level 4 wind spell to shatter the insect
+snake.
 
 <br />
- That day... I happened to encounter a monster (rabbit) and tried to
-dissect it alive, but was counterattacked, and the Kitty got angry at me
-again.
+"Hahaha! Don't underestimate me, Karla!"
+
+However, the tiny, thread-like insects shattered by the storm swam
+through the wind towards Karla.
+
+Karla couldn't know what would happen if those insects entered her body.
+But Karla, with a faint smile, waved her hand towards the "storm" she
+had created.
+
+"—Acid Cloud—"
 
 <br />
- The next day, we rode on the Kitty and ran through the dungeon again.
+The "acid" diffused by the wind burned all the tiny, thread-like insects
+to death, dyeing the storm a dark black.
 
- We didn't encounter any more monsters. There were some traps and mazes,
-which were troublesome, but we passed through them using only the
-Kitty's physical abilities.
+But is Karla alright in the midst of it all? That can't be true.
 
- However, not encountering monsters also means we can't procure food.
+"Aha♪"
 
- Aria's and my \[Shadow Storage\] still have food left, but the Kitty
-doesn't. We gave all the monster meat we had hunted and saved up to the
-Kitty, and just when we were getting tired of the simple barley porridge
-with beans, dried vegetables, and a small amount of dried meat, we
-finally saw the end of the dungeon.
+From the vortex of acid, wearing a burnt dress and with skin eroded by
+acid, Karla laughed as if she were a girl dancing in a flower garden.
 
 <br />
-"Is this the deepest part?"
+\[Karla Leicester\] \[Race: Human Female\] \[Rank 5\]
 
-"Probably."
+\[Mana: 472/630\] \[HP: 7/48\]
 
- We went down a long staircase and entered a slightly larger space.
-
- Beyond a plaza that was probably just for preparation, there was a huge
-double door made of metal.
-
- Aria and I were speaking less than necessary. The Kitty was also just
-narrowing its eyes, and its fur was standing on end as if slightly
-charged.
-
- The oppressive feeling coming from beyond the door... As we got off the
-Kitty's back and walked closer, and thought about how to open that huge
-door, at that moment――
+\[Total Combat Power: 1827 (Magical Attack Power: 2740)\]
 
 <br />
- DOOOON!!
+It's abnormal. It's not normal. Unless it's instant death, it's not
+"death."
 
- With a roaring sound, something crashed from the other side of the
-door, and the door buckled outward.
-
-"――tsu"
-
- As we jumped back, the buckled door creaked open, and a huge humanoid
-shadow revealed its form from inside.
-
- More than twice our height. I don't know how many dozens of times its
-weight, it was...
+For Karla, even that pain was proof of "life," and "killing" and "being
+killed" were her reasons for living.
 
 <br />
-"Goblin King...!"
+"—Fireball—"
 
 <br />
- The highest-ranking species of the goblin family. Rank 6, comparable to
-a Minotaur Murderer.
+Four fireballs, each large enough to be embraced, were created around
+Karla, and all of them rained down on Amor, who was still in the air.
+But—
 
- The giant, with a combat power exceeding 3000, glared at us with
-bloodshot eyes from the darkness of the door, and took a step forward.
+"—!?"
 
- But...
+There were still Dandorle's knights who were acting as rear guard around
+him.
 
-<br />
-"――Guaaaaaaaaaaaaaaa!!"
+Even one of those fireballs has the power to incinerate a squad of
+knights. If all four exploded, even Dandorle's Chief Knight Commander
+could be caught in the blast.
 
- A black spear that pierced the already blood-soaked Goblin King's
-abdomen from the other side, the moment we realized it was a "snake,"
-the giant body of the Goblin King, who reached out to us as if seeking
-help, was easily dragged back into the depths by "something" as if being
-fished up.
-
- The Goblin King, who was floating in the air like a fish on a line, was
-crushed and killed by multiple huge jaws.
+However, there were those who intervened.
 
 <br />
-"......Snow."
-
- Aria-san probably doesn't have it in her knowledge. Called, I quickly
-gave up trying to recall from my normal knowledge and remembered the
-contents of the Leicester family's forbidden books that I had been
-reading since I was a child.
-
- As a result of the culling among monsters, goblins, who survived from
-the original humanoid monsters through cannibalism, evolved into Goblin
-Kings.
-
- However, at the same time, it also culled the beast-type monsters, and
-probably due to the intervention of the dungeon, a distorted life form
-that should not have been born normally was created.
-
- A bear-like torso with scales, and six legs of various beasts.
-
- Black wings and black horns in a distorted shape.
-
- A long, stretched snake's tail and multiple heads like a lion, wolf,
-and monkey.
-
- A desecration of life that should not be born naturally... that is...
+"Gaaaaaaaahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh!!"
 
 <br />
-"......Chimera..."
+The roar of a "beast" shook the atmosphere, and a vast "darkness" tore
+through the starry sky.
 
 <br />
-\[Chimera\] \[Race: monster\] \[monster Rank 7\]
-
-\[Magic Value: 307/350\] \[HP Value: 1034/1180\]
-
-\[Total Combat Power: 7306\]
+"Uooooooooooooooooooooooooooooooooooo!!"
 
 <br />
-『Gaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa!!!』
+A man leaped from the back of the jet-black beast, and swung a jet-black
+greatsword over his head.
 
 <br />
-------------------------------------------------------------------------
+"—Hell Slash—!"
 
 <br />
-.
+The released Great Sword Skill Level 5 martial technique raged wildly.
+The strike detonated the fireballs, engulfing Amor and pushing back the
+power towards the other side, and the flames approaching Dandorle's side
+were prevented by the impact of the giant body stirred up by the black
+beast.
 
-The monster at the deepest part is a Chimera.
+"—Oooooooooooo!!"
 
-The image is like the Chimera - Howl by Baku Yumemakura-sensei.
+A voice of admiration rose from the knights on Dandorle's side at that
+unbelievable sight.
+
+"Lord Feld!"
+
+"Are you safe, Lord Dandorle!"
+
+Feld, recognizing them as people he had met before, returned a manly
+smile to Dandorle's Chief Knight Commander and the knights who called out
+to him, and immediately glared at Karla in the sky.
 
 <br />
-Volume 5 of this book has also been released safely. If there are any
-left at the bookstore, please pick one up.
+"...What do you think you're doing?"
+
+Feld questioned Karla, who had used magic in a way that involved
+Dandorle. Karla, while regenerating her burnt white skin, smiled sweetly.
+
+"What I promised Aria was to head to Dandorle and kill the enemy. I'd be
+troubled if you expected anything else."
+
+"What did you say..."
+
+"More importantly... not yet."
+
+"Gwaoh!"
+
+At that moment, Nero roared as if wary of something, and Feld and
+Dandorle's knights turned around... In the flames, it writhed.
 
 <br />
-Volume 2 of the Demon Princess's book will be released on 2/2, and
-volume 1 of the comic adaptation will be released on 1/6!
+"—Ugoooooooooooooooooooooooooooooooooooo—"
 
-Thank you for your support.
+Even after being hit by Karla's fireballs and receiving Feld's martial
+technique, Amor still couldn't (........) die. He regenerated without
+being destroyed, and was about to stand up again.
+
+"...Is he a monster?"
+
+Dandorle's Chief Knight Commander's voice echoed faintly. Even behind
+Amor, the knights of the Second Knight Order, who had been caught up in
+the blast, stood up, and Amor, who had begun to regenerate rapidly,
+glared at Karla and Feld with wide eyes, and shouted at his subordinate
+knights with a voice filled with hatred.
+
+"You lot! Attack!!"
+
+<br />
+"Aaaaaaaaaaaaaaaaaa..."
+
+In response to his voice, the knights who had been in the flames began
+to move like ghosts, but collapsed back into the flames before they
+could even take a few steps. However, the knights of the Second Knight
+Order, who had escaped the baptism of fire, were horrified by the deaths
+of their comrades, but desperately readied their weapons with grim
+expressions. Feld couldn't help but call out to them.
+
+"Are you still going to listen to that man's orders! Look at Amor's
+appearance!"
+
+No matter how you look at it, he's not a "human." Even though Amor had
+regenerated, his half was still charred, and his right half was writhing
+ugly without even taking human form, as if it hated the flames. However,
+the knights of the Second Knight Order were not fazed even after seeing
+Amor like that, and gave Feld, who was trying to reason with them,
+suspicious looks.
+
+"His Highness has surpassed humanity while remaining a 'human'!"
+
+"What do you adventurers know about what the 'Hero' Lord Amor is doing!"
+
+<br />
+Their words were as if they couldn't see "reality."
+
+In fact, they may still see Amor as the Amor of the past.
+
+Is such a thing possible? Is it possible for Amor's Gift to change even
+people's perceptions? In the first place, it seemed that replacing half
+of one's body with "insects" was beyond the scope of a Gift.
+
+Such a thing is not something that humans or elves would do.
+
+Looking down at their appearance from the sky, Karla muttered in a clear
+voice.
+
+<br />
+"You... made a contract with a 'demon,' didn't you?"
+
+<br />
+Feld, hearing those words, looked up at Karla. Karla ignored Feld's gaze
+and began to accumulate a vast amount of mana in her hand.
+
+"Wait, Karla!"
+
+If Karla unleashed her magic at full power, it would inflict great
+damage on Amor, not to mention the undead members of the Second Knight
+Order. But this time, even Feld might not be able to deflect the magic.
+
+"—Dragon Breath—"
+
+Before he could stop her, Karla released a fire spell with her great
+mana. However, the line of fire did not target the Second Knight Order,
+but engulfed Amor, who was continuing to regenerate, and created a wall
+of flames as if drawing a line horizontally.
+
+The rising flames separated Amor and the others from Dandorle. However,
+that only slightly stopped their advance, and the Second Knight Order
+dispersed to avoid Karla's magic and tried to flank them.
+
+But Karla sneered at Amor and the others, and turned her chilling eyes
+towards Dandorle's Chief Knight Commander.
+
+"You're going to retreat, aren't you? You can withdraw now, can't you? I
+want to change my dress too, so it's perfect."
+
+"..."
+
+<br />
+I don't think Karla would hesitate to involve anyone. Feld glared at her
+to find out her true intentions, but before he could get an answer,
+Dandorle's Chief Knight Commander, who had regained his senses, shouted
+at his subordinate knights.
+
+<br />
+"Everyone, run to the Dandorle manor! You can discard unnecessary
+luggage! Prioritize bringing all the injured back!"
+
+"...Hah!"
+
+The knights of the First Knight Order, who had been equally stunned by
+his voice, also began to move, and Feld and Nero followed them, still
+dubious of Karla.
+
+<br />
+"—Fufu."
+
+Karla turned her purple eyes towards Amor, who was blocked by the
+flames, and finally, while following Feld and the others, wore a smile
+on her lips that was more devilish than any demon.
+
+
 
 ---
 [TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0007.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0009.md)

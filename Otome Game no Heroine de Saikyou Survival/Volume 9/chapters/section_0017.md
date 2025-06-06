@@ -2,238 +2,336 @@
 
 
 
-# 277 That Which Approaches the Viscount's Territory
+# 245 Intentions Part 1
 
-The Dandorl March, known as the Northern Capital. It had prospered as a
-trade center from the start, but in the past few years, peculiar goods
-for women have begun to appear.
+"I understand your story..."
 
-New cosmetics, clothing, and household goods. Initially, they were only
-accepted by female adventurers who loved novelties, but they quickly
-spread to aristocratic daughters and female knights, gaining great
-support, especially among relatively wealthy young women.
+Elena nodded with a grave expression after hearing my story.
 
-"……Come to think of it, I was recommended various things at that dwarf's
-armor shop."
+Elena, as a princess, understands what is necessary.
 
-"Is that so?"
+Under normal circumstances, Elena would not have tried to become queen.
+In peaceful times, Elvan could have become king even if he was ordinary,
+based solely on His Majesty the King's decision. Even if he didn't
+achieve great things, Melrose and Dandorl, members of the old royal
+family, would serve as his close advisors, and a princess from an old
+noble family would support him as his queen.
 
-"Aria... aren't you wearing some too?"
+However, now is not "normal times." The country is divided into
+factions, foreign powers are infiltrating, and nobles seeking personal
+gain are trying to attach an ignorant queen to a powerless king, using
+the public opinion influenced by religion, a force that cannot be
+ignored, as their backing.
 
-Aria really has little interest in that sort of thing....
+"If your plan works well, we may be able to lower the charisma of that
+troublesome Saintess... But, to be honest, I'm still confused, and I
+hesitate to use you... Aria."
 
-<br />
-Anyway, until then, cosmetics were limited to scented oils and face
-powder, underwear was limited to drawers, and it was normal for rural
-villages not to have underwear until after the age of ten, but now, from
-expensive items for nobles to cheap items for commoners, anyone can
-obtain them if they want.
+Elena looked straight at me and spoke not as a princess, but as a young
+girl.
 
-The Dandorl family was the first to create these items. Rumor has it
-that it was a young lady who was not even ten years old yet.
+"Are you okay with this?"
 
-<br />
-This land we arrived at is a small viscount territory a few days south
-of the Dandorl domain.
+I have avoided nobles to escape, but I've already made up my mind.
 
-One city and two post towns. Otherwise, it's just ten villages and large
-cotton fields, too small to even be a barony; it seems to have
-originally been under the direct control of the Dandorl family.
-
-As far as Aria has investigated, this land, governed by a vice-baron who
-is a vassal of the Dandorl family, was a place to create new products
-for the Dandorl family, but this land was made the territory of a new,
-young viscount.
+"I won't run anymore. This 'power' is for that."
 
 <br />
-"……Indeed, we were favored by the young lady, and we were all really
-looking forward to her becoming queen, but if the young lady becomes the
-lord of this land, we must also support her."
+Not to escape fate, but to destroy the story (fate).
 
-An old man (Samantha's child’s generation) from a stall in the post town
-said so earnestly.
+I sought power for that purpose, and I became stronger for that purpose.
 
-Samantha, who was much older than the quite elderly old man, tried to
-charge into the tavern as soon as she arrived at the post town and was
-restrained by Aria's pendulum.
-
-"Samantha. If you're going to drink, eat something while you do."
-
-"More massive amounts of mutton again! A demon wife!"
-
-……Is this what peace means?
+But when I was about to give up, when I was about to lose, the "promise"
+to protect you, Elena... that made me stronger.
 
 <br />
-Anyway, it seems the young lady is adored by the people, perhaps because
-it was originally under direct control, she gave them work, and showed
-her face many times.
+"...Yeah."
 
-By the way, the lord of this "Lovino Viscount Territory" is a former
-prince, but perhaps the people don't even know his face?
+Elena unconsciously reached out and took my outstretched hand.
 
-Well, considering the circumstances, he will likely never appear on the
-public stage as a noble in their generation. Still, there was a high
-chance that he would have died in the battle between me, Aria, and the
-demon, so just being alive without being confined is better.
+"So, 'use' me, Elena."
 
-Although, I shouldn't be the one saying that, considering I tried to
-kill everyone in the royal capital.
+"Yeah... Aria."
 
 <br />
-"Snow. I'm going to show my face at the adventurer's guild. What about
-you?"
+The discussion is settled, and we start moving towards our goal.
 
-"Where's the old woman?"
+First, we need to request cooperation from various parties for this
+matter.
 
-When Aria, who had returned, said that, I tilted my head at the
-existence of the old woman, who had disappeared without my noticing.
+"In particular, we need thorough discussions with the Melrose family. It
+would be good if the Prime Minister returns soon, but if Mikhail returns
+first, it's bad of me to say this after he's just returned, but we'll
+have him work right away."
 
-"Samantha is old, so I'm having her stay at an inn nearby today. I think
-she's drinking on her own."
+Elena, back in her role as a princess, began preparing for meetings with
+the noble families who have been her allies. Especially since the
+neutral faction is wavering due to the Amor incident, it's necessary to
+keep them on our side.
 
-"Well... isn't that fine?"
+According to information brought by Sera, who returned after the
+discussion with Elena, Dandorl and Melrose successfully repelled the army
+of Undead thanks to the arrival of the First Knight Order.
 
-<br />
-Come to think of it, that's right. Aria is treating Samantha like a
-normal old woman, and I was surprised by that.
+"Successfully"... even so, there were still some casualties, but it was
+lower than expected considering they were facing Undead. If Amor had
+been left unattended, there was a possibility that not only would the
+Frontier Count's family have been annihilated, but we would have
+suffered fatal damage from relentless attacks.
 
-"More importantly, there's an adventurer's guild in such a small post
-town?"
+The Undead didn't stop their activity even after Amor was defeated, but
+in exchange, the knights who still had some will also lost their will,
+and the army that lost its command structure was no longer an invincible
+enemy, even if they were Undead.
 
-"Basically, they're in cities with lords, but these kinds of post towns
-also have branch offices with equipment for emergency communication."
-
-"Heeh……"
-
-<br />
-Long-distance communication magic tools are expensive because they use
-valuable adamantite, but the price seems to be proportional to the
-communication distance, and in such a small territory, there seems to be
-only one that can communicate with the royal capital from the guild in
-the territory's capital.
-
-However, that's for making calls, and if it's just something that sends
-short messages like the ones in the magic academy, mithril can be used
-instead, and such things can be placed even in these post towns.
-
-Well, it's military supplies, so not just anyone can buy them; the
-general public needs state permission.
+There is still post-processing to be done locally, but Elena believes
+that because of this situation, Dandorl and Melrose will return to the
+royal castle as soon as possible.
 
 <br />
-"Here it is."
+"...Let's leave my brother to her."
 
-While we were talking about that, we found the adventurer's guild branch
-office.
+Elena's position is complicated. She is moving to overthrow her brother,
+but that doesn't mean she has completely lost her feelings for him as
+family.
 
-What can I say... it's just a private house. When we went inside, there
-was only one middle-aged male employee, and a man who looked like a
-traveling merchant was talking to the employee.
+That's why, if she... Clara, tries to save him, Elena intends to allow
+it.
 
-The guild's branch office also buys magic stones from low-rank monsters
-defeated by traveling adventurers, residents, and travelers. If you're
-just selling magic stones, it's a bit more expensive, but you don't need
-to register as an adventurer.
+Now that she is freed from the curse of having to become queen, she will
+likely seek a way to resolve the issue without antagonizing Elena.
 
-Is this traveling merchant here to sell magic stones, or to make a
-request? As I wondered that and observed the situation, it didn't seem
-like a peaceful atmosphere.
+She will cooperate but not interfere. The rest is up to Clara... those
+two to decide.
 
 <br />
-"—So, do something about it already!"
+After finishing the discussion with Elena, I headed to Gelf's shop in
+the city to prepare myself.
 
-"That's why, you need to tell this to the guard post or the lord."
+There is no need to change my weapons. If I had time, I would have
+Garbas take care of them, but Gelf can do the maintenance. Besides, my
+black knives and daggers, which are enhanced with adamantine, are
+difficult to enhance further.
 
-"I have told them, but it's been a long time!"
-
-"The number of soldiers is limited... I think we can only wait for
-knights to come from Dandorl."
-
-"When will that be!?"
-
-"The lord is requesting for help, but no one is accepting the request."
+But armor is a different story. If the "stage" for the final battle is
+the academy's graduation party, I needed equipment for that.
 
 <br />
-"……What's wrong?"
+"Gelf, are you there?"
 
-It seemed like it would become troublesome, but Aria, sensing that the
-conversation wouldn't end, called out, and the traveling merchant turned
-around before the employee.
+The store is open, so she should be there, but as I stepped into the
+still customer-less store, the sound of pin heels echoed from the back,
+and Gelf, wearing a diva-like costume, swaying his hips from side to
+side, finally stomped his foot on the floor with a "click" and turned
+around.
 
-"Young ladies, are you adventurers? If so, get rid of those bandits!"
+"Oh, Aria-chan, you've become even more beautiful. How do you like my
+costume? Wouldn't even Aria-chan be captivated?"
 
-"Hey, what are you saying to these young girls!?"
+"Yeah."
 
-The employee with common sense started arguing with the traveling
-merchant who was trying to force the bandit subjugation on two young
-women rather than ignoring the guild.
+I didn't know that leg hair could pierce through fishnet stockings.
 
-Well, it can't be helped. Aria is cute after all.
+"So, did you come here for tea today? There's a rare confectionery
+called 'macaroons' that's become famous in Dandorl, you know."
 
-<br />
-"What's wrong?”
+It seems like strange things keep coming out of Dandorl. I know of
+similar things from that woman's "knowledge," but I didn't come to drink
+tea.
 
-<br />
-"“――!?”"
+"I want equipment."
 
-The two froze at Aria's words, which she repeated without changing her
-expression or tone. I think even a rank 3 monster would freeze...
+"...You're still so dry."
 
-"Actually……"
-
-The employee told us.
-
-Bandits have been appearing in this area recently. I thought bandits
-were just farmers who couldn't get land, or a side job for farming
-villages during the off-season, but according to the traveling merchant
-who interrupted the conversation, there's a powerful guy leading them,
-and they're quite organized.
-
-In other words, a group of people like a soldier squad or mercenary
-band, only in name bandits, are attacking only merchant caravans without
-even glancing at travelers.
-
-They know this territory is making a lot of money and are completely
-targeting it.
-
-Are they really bandits...?
+Every time I come, Gelf preaches to me about "What is femininity?" but
+when you come to an armor shop, it's obvious that you want armor.
 
 <br />
-This territory has soldiers, but the number is limited in this small
-viscount territory, so it must be tough. If they only patrol the roads
-with a small number of soldiers, they might be counterattacked by
-organized bandits.
+"Aria-chan's equipment was just replaced recently, and it doesn't need
+maintenance yet, does it?"
 
-The Dandorl family should have attached a knight order for the sake of
-their daughter and the former prince, but even for them, guarding the
-two takes priority, and their number isn't large either.
+"Yeah."
 
-The young lady has asked the adventurer's guild, but after a rank 2
-adventurer was counterattacked once, the employee said that even rank 3
-adventurers are hesitant.
+My leather dress uses the flight membrane of the dark dragon, an
+attribute dragon. In terms of defense and mana resistance, I couldn't
+ask for more from light armor. When I explained the situation where I
+still wanted "armor," Gelf's eyes sparkled.
 
-<br />
-"Snow."
+"Then I have something good!"
 
-"Yes, yes."
+"Why?"
 
-It can't be helped... Even though she doesn't trust others, she can't
-leave them alone.
+What was he expecting to have on hand? As I tilted my head in question,
+Gelf grabbed my arm and dragged me to the back.
 
-I honestly don't care. I have no interest in toys that are out of my
-hands.
+What was there was...
 
-But... if that's what you want to do, I'll gladly go to the depths of
-hell.
+"A black dress...?"
 
 <br />
-"We'll take that request."
+A beautiful, glossy black dress was provisionally assembled on a wooden
+mannequin.
 
-When Aria said that, the employee and the traveling merchant looked
-surprised, but when Aria showed her rank 5 tag, their eyes widened and
-they fell silent.
+My current equipment is also in the shape of a dress, but it's shaped to
+allow for vigorous movement, and the hem is shortened accordingly. But
+this was a "real dress" like something you would wear to a ball.
 
-Besides... I said they were strangers, but it's not like they are. I owe
-the princess a bit too.
+However, the fact that it was no ordinary dress was evident from the
+thousands of magic steel pins of Gelf's treasure that were hammered into
+the seams of the provisional assembly.
+
+Ordinary needles wouldn't go through, and it was made of a special
+material that required pre-drilled holes. Just like my equipment.
+
+<br />
+"I received the same materials as a production fee for making your and
+Mira-chan's equipment. I was wondering what to make, but even if I made
+it as a hobby, Aria-chan is still my exclusive model. I made this 'Night
+Sky Dress' with you in mind."
+
+<br />
+As expected, the dress was made from the highest-grade material, the
+flight membrane of the dark dragon.
+
+The tanning method was different, giving it a velvet-like luster, and it
+really looked like stars were twinkling in the night sky.
+
+At first glance, it just looked like a cloth, but even when Gelf
+carelessly slashed it with a steel knife, only a faint white line
+remained, and the mark disappeared just by lightly wiping it with a
+finger.
+
+<br />
+"Aria-chan's current equipment considers general defensive power and
+uses the thicker parts of the flight membrane, but this dress uses the
+thinner parts, so it's not much different from wearing a silk dress. It
+has cut resistance, but it's weaker against blows, but in exchange, it
+uses a lot of flight membrane, so its mana resistance is increased. You
+can brush off level 1 attack mana with the hem."
+
+"Amazing..."
+
+Because it's a dress, some parts are draped like decorations, which
+increases the weight, but I felt that the high mana resistance was
+necessary for the "final battle" with that girl.
+
+But, should I really use such equipment? Gelf smiled when he saw that
+thought on my face.
+
+"This is my 'hobby'! If Aria-chan wears this and breathes life into my
+'work' on the big stage, that's my life's purpose!"
+
+"Gelf is really amazing..."
+
+I sincerely respect Gelf's passion.
+
+"Regarding the cost, I have no problem because I'm getting a big job
+from somewhere else. Platinum coins fifty... that's a tremendous job.
+Moreover, full payment in advance... I couldn't help but deposit the
+entire amount in the Commercial Guild."
+
+"...That thing?"
+
+<br />
+It was there in the direction of Gelf's gaze.
+
+It was provisionally assembled on a wooden mannequin. The upper body
+exposed the shoulders and back, while the bottom had a large amount of
+fabric intertwining like a large rose: a silver-white dress.
+
+Platinum coins, which are not generally distributed and are only used as
+rewards from commercial guilds or nations, numbered fifty... Even Elena,
+a princess, doesn't have a dress worth five thousand gold coins.
+
+Did the queen have it made to match the crown prince's graduation? But,
+based on what Elena has told me about the queen's personality, I can't
+imagine them indulging in such extravagance.
+
+In the first place, there's no way a single dress would cost that much,
+and would the royal family commission a dress from Gelf, who is an armor
+maker? No way.
+
+It's not just a dress, like the "Night Sky Dress," this is "armor."
+
+<br />
+"Mithril dress..."
+
+"That's right. It's all made of fibrous mithril. Its defense and mana
+resistance are comparable to a dress made of attribute dragon membrane,
+and except for the legendary orichalcum, which is said to be
+unprocessable by humans, I think this is the 'strongest' dress."
+
+"............"
+
+It's also due to Gelf's skill, but both are equipment that could be
+called national treasures.
+
+But, who (specifically) is going to wear such a mithril dress...? Gelf
+has a duty of confidentiality and will not talk about the client, but
+for a moment, the figure of a black-haired girl wearing it and wrapped
+in flames flashed in my mind.
+
+<br />
+\*\*\*
+
+<br />
+(...How did it come to this?)
+
+Elvan, the crown prince of this country, was agonizing alone in his
+private room in the Prince's Palace.
+
+No one was by his side. There were people to take care of his personal
+needs, but the attendants, who only saw Elvan as the crown prince, were
+waiting in the waiting room, and no one was there to empathize with his
+suffering.
+
+The two people he once thought of as companions and friends were no
+longer there. Amor had been defeated for the crime of rebellion and
+erased from the royal family, and the obituary of Nathaniel, who had
+been bedridden for a long time, had also arrived from the head of the
+Holy Church's temple.
+
+He once thought of them as companions and friends (specifically). But,
+as the two became infatuated with that Licia, a "gap" gradually arose in
+the relationship with the two. For that reason, even when he received an
+invitation from Licia to pray for Nathaniel, he could not go to see her.
+
+The reason for that gap was a memory with a certain girl....
+
+<br />
+"--Your Highness, are you awake?"
+
+"W-what is it?"
+
+Elvan, flustered by the sudden voice from outside the door, was informed
+of the content in a slightly restless voice by the attendant.
+
+<br />
+"Clara Dandorl-sama is here to see you."
+
+<br />
+------------------------------------------------------------------------
+
+Everyone begins to move with their own thoughts.
+
+Next time, Intentions: Part 2.
+
+Everyone's thoughts will be revealed.
+
+I'm writing a lot of troublesome content this time as well, but frankly,
+it's half a hobby and half an extra for the battle.
+
+I feel like the battle has more depth if the back story and reasons are
+clearly defined.
+
+<br />
+The first volume of the comic adaptation will be released on the 15th of
+this month, and the third volume of the book will be released on the
+19th!
+
+I'm also constantly posting the latest information on Twitter, so please
+stop by if you're interested.
+
 
 
 

@@ -2,7 +2,7 @@
 
 # Otome Game no Heroine de Saikyou Survival  
 
-_Author:_   _Haru no Hi_
+_Author:_ _Harunohi Biyori_
 
 _TN: BerkomzxTL_
 
@@ -18,12 +18,11 @@ TN: These chapters are (much more) slipshod (than usual) but I threw something t
 
 The epilogue is ongoing. As the afterword at the end of chapter 260 mentions, there's been a new chapter uploaded at the start of each month, 1 per month (so most recent was may 4th 2025). May keep up with those for a little while.
 
-Also, "Volume 8.2" is what I went with but even though its one single arc in the WN, the LN series cuts it in half, so the latter half should be Volume 9. I think ch 229 is about halfway through volume 8, so I didn't bother though. What I'm calling volume 9 I don't think is covered in the current LN series.
 
 # Table of Contents
 
 LN Volume 7 - [https://ouo.io/huuTmnz](https://ouo.io/huuTmnz)
 
-[Volume 8.2 (229-260)](Volume%208.2/readme.md)
+[Volume 9 (229-260)](Volume%209/readme.md)
 
-[Volume 9 (261-296+)](Volume%209/readme.md)
+[Volume 10 (261-296+)](Volume%2010/readme.md)

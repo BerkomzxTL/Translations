@@ -2,229 +2,446 @@
 
 
 
-# 282 The Way of the Heart
+# 250 Graduation Event "Obsession"
 
-"The Hero wishes you to come to the main temple of the Holy Church. I
-think it's presumptuous of them to summon you after coming here on their
-own... Aria, is our 'promise' still valid?"
+The audience, who had been simply watching the unfolding events, gasped
+as a wave of sound rippled through them.
 
-<br />
-Elena uses the word "promise" and stares intently at Aria.
+I can understand the reason even from my perspective. The nobles who
+believed in the teachings of the Holy Church had personally seen her
+character and acknowledged her as the "Saintess," and they revered her,
+even with the influence of suspicious forces.
 
-I don't know what happened between the two of them, but does that mean
-that if they use it, they can avoid the Hero's summons?
-
-A secret just between the two of them... I'm a little displeased, but it
-can't be helped. After all, it's Aria. It's so like Aria to keep that
-'promise' she made with me.
-
-But, as Elena says, it's ridiculous for them to summon Aria after
-deciding to make her a companion on their own.
+That's why they noticed. That the contents of the Saintess had changed
+into "something else."
 
 <br />
-"No, it's not necessary."
+"Eh? What was I dooooooiiiiing――"
 
-But Aria gently shook her head at Elena's offer.
+Her head, which she tried to tilt, bent so far sideways that it seemed
+about to break, and her right and left eyes moved as if looking at
+different things. From beside her, the white-clad maid—Colette—whispered
+softly.
 
-"It hasn't become that urgent yet. Besides, it will probably be more
-troublesome if the Hero comes to the Kingdom of Claydale."
+"The contractor will become 'happy.'"
 
-"That's... probably true."
+"――That's right! I will be happy!"
 
-Elena looked troubled at Aria's words.
+Mishii...
 
-<br />
-That's certainly a strong possibility. If the Hero comes, important
-people from the Holy Kingdom will probably come too, and if that
-happens, it may become difficult for the country to refuse.
+In response to those words, she twisted her bent neck, forcing her face
+forward, and her neck joints cried out in agony with a nasty sound.
 
-If their promise is to protect Aria as royalty, Elena would be taking a
-considerable risk.
+"I, ha, ha, haaa――Don't come inside meeeeeee!"
 
-<br />
-"Why don't you just ignore them?"
+Her eyes, which had suddenly cried out in anguish, shook violently, and
+for a moment, her eyes seemed to return to sanity, but then they rolled
+back, and the next moment, she burst into a shrill laughter again.
 
-When I say that teasingly, Elena smiles just a little.
+"Kyahahahahahahahahahahahahahah! That's right! 'I' will become the
+heroine!"
 
-"That's what I'd like to do. If the messenger who brought this story was
-from the Fandora Theocracy, it wouldn't be strange for them to become
-'missing' without anyone knowing, but that messenger is the new head
-priest of the temple in this royal capital."
+Amidst the extraordinary scene, "something" that had become her looked
+around and called out the name of "me," whom she found.
 
-<br />
-The former head priest, a noble in religious clothing, has retired to
-take responsibility for the things his grandson did.
-
-In reality, it's probably more due to the mental strain of his grandson
-being possessed and killed by a demon than responsibility. It's tough.
-
-I haven't met the new head priest, but if they were entrusted with an
-important case as a messenger based on instructions from the main temple
-via long-distance magic tool, they might be overzealously proclaiming
-it.
+"Aliciaaaaaaaaaaaaaaaaaaaaa!"
 
 <br />
-Then, as expected, we can't pretend that "there was no messenger from
-the beginning." Serious Dalton, who is listening to us discussing in all
-seriousness whether to get rid of the messenger while maintaining a
-straight face, is grimacing and closing his eyes as if he didn't hear
-it.
+This voice filled with madness... Looking at her expression filled with
+obsession, I understood the "identity" that had entered her.
+
+"...'That woman,' huh?"
+
+Long ago, when I was young and knew nothing, that woman with the
+memories of a previous life who tried to take my place after I escaped
+from the orphanage.
+
+I gained fragmentary knowledge when my blood touched the "magic stone"
+that sealed that woman's memories. Still, the "knowledge" that flowed
+into me was only the knowledge that woman had gained in this world, and
+the "essence" to which that woman was fixated was unaffected because I
+unconsciously rejected it.
+
+I crushed the magic stone as much as possible, but even though the
+surface was brittle, the core was solid and couldn't be crushed, so I
+had no choice but to throw it into the gutter.
+
+I thought it would eventually weather away if I didn't touch the wound.
+But... now that I think about it, the brittle part was probably the part
+where I gained knowledge. That part had fulfilled its role. The
+remaining core was the part where that woman's essence was recorded, and
+someone with a matching wavelength picked it up without it weathering
+away.
 
 <br />
-"Jokes aside, it really depends on the Hero's personality. Even if they
-don't mean to, there's a possibility that they're just being swayed by
-the Holy Church's opinion... In the end, we won't know until we meet
-them."
+"Seize that woman!"
 
-Elena said that, and for a moment, her blue eyes reflected me.
+"Everyone, evacuate from this place immediately!"
 
-Our response will change depending on whether the Hero's substance is
-"just a person with power" or "just a fool who has been swallowed by
-power."
+There, Grand Knight Commander Dandorle Frontier Count raised his voice
+and, as His Majesty the King had decided in advance, ordered the
+graduates and general public to evacuate.
 
-Perhaps there is also the case where "a pure and upright person worthy
-of the Hero, sincerely wishes for world peace and earnestly invites
-Aria," but this might be the most troublesome.
+In response to his voice, the security knights, who had been deployed in
+larger numbers than usual for this occasion, rushed forward.
 
-Even then, "my" response will not change.
+"Don't approach carelessly!"
 
-<br />
-"Anyway, I'm going to see that person for myself. If going or welcoming
-them will cause trouble, it's better to meet them over there."
+Seeing that, I couldn't help but stop them. That woman is strange, but
+that Colette is clearly abnormal as well. Aside from her hair turning
+white, her very presence no longer felt like a "person."
 
-"Aria..."
+"Aria!"
 
-It would be better if the people of the Holy Church came at us with
-their authority. If the Hero is serious about resorting to violence, I
-don't know how much damage will be done.
+Seeing my reaction, Elena orders me, her guard, to quell the situation.
+But before I can move, someone else moves first.
 
 <br />
-"——Don't tell me, you're planning to go alone?"
+"――【Fire Javelin】――"
 
-There, Dalton, who had been listening silently to the conversation until
-now, muttered in a low voice, and Aria turned around without changing
-her expression.
+"!?!"
 
-"That's the plan."
+The fire magic was unleashed almost directly behind me, and I pushed
+Elena to the ground to protect her.
 
-"Me and the Kitty will go with you."
+"Karla!"
 
-As I continue Aria's words, a faint growl is heard from Aria's shadow as
-if to affirm it.
+"Fufu."
 
-But——
+Karla laughed at my shout, and her 【Fire Javelin】 flew through the
+venue, striking Colette, who had shielded that woman, directly.
 
-"No, just you guys is no good either."
+Doooon!
 
-Dalton vehemently objects to our declaration of intent.
+"Kyaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa!?"
 
-"But, in the worst case..."
+"Gwaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa!"
 
-"That's what I'm saying is no good. If you guys break with the Hero,
-you'll run away, disappear, or manage somehow. You think you can somehow
-fight the Hero, but don't underestimate the Holy Church."
+Flames and heat scattered. Because offensive magic that could kill
+people was used in such a place, the nobles who had returned to their
+senses screamed and fled in panic, and the knights who were caught in
+the aftermath of the flames nearby rolled around on the floor.
 
-"Then what do we do?"
+"How terrible..."
 
-<br />
-If we end up antagonizing the Hero, we'll be wanted people on this
-continent.
+Colette, who had blocked the flames with her left arm, turned her dark
+eyes towards Karla, creating a new arm out of nematodes in place of her
+charred arm. Karla floated in the air and smiled down at Colette from
+the high ceiling, which was about three stories high.
 
-When I interrupted Dalton's words with a faint smile, Dalton frowned and
-glared at me and Aria.
+That ability is the same as Amor's power? If so, then she is――.
 
-<br />
-"You two have put in extraordinary effort and experience since you were
-children, and you are among the strongest people on this continent, but
-you are still 'children' who have not even reached adulthood. Would
-'adults' silently watch you living in the adult world again, or the
-underworld? We adults will stand on the front lines. This is decided. No
-objections allowed."
-
-Dalton said that much, and as if he wouldn't listen to any other
-opinions, he crossed his arms and leaned back on the sofa.
+"You're a 'demon'..."
 
 <br />
-I and Aria are aware that we have abused our power, which exceeds that
-of adults, and have done as we pleased.
+Karla's clear voice flowed smoothly through the chaotic venue. Those who
+heard it stopped in their tracks for a moment, and those who understood
+its meaning widened their eyes.
 
-There are circumstances that forced us to do so in order to survive, but
-we have chosen to live that way, and we interact with adults, trust
-them, but do not sincerely trust them from the bottom of our hearts.
+For the past year or so, the royal capital had been terrified of the
+threat of demons. However, there was someone who could defeat them, and
+by putting the Saintess forward, the Holy Church prevented people from
+being crushed by anxiety.
 
-We decide whether to live or die ourselves. To us, who have lived with
-such beliefs, Dalton said that adults will protect children because they
-are adults.
+But it was the Saintess who invited that demon into the royal capital...
+into the castle.
 
-Even us... no, even me, is it okay to live in the light?
+Colette is a demon? The adventurer girl I met in that town... I lost
+sight of her along the way, but was she a demon from the beginning?
 
 <br />
+"Mage Order, forward! Suppress it!"
+
+At that moment, a voice echoed, and the Chief Court Magician—Count
+Leicester—instructed his subordinates.
+
+"Don't worry about involving my daughter!"
+
+To such heartless words, the magicians did not hesitate and fired
+offensive magic of water and wind, trying to involve Karla.
+
+Colette still carried the woman, whose behavior was still erratic, and
+jumped down, while Karla deflected the magic with a wind barrier.
+
+"...Father, what's going on?"
+
+"Hmph. Those are words I wouldn't expect from you, who tried to involve
+Her Highness the Princess. You can die as a cornerstone of the royal
+family. That's what you want, isn't it?"
+
+Count Leicester, her father, squinted and returned his feelings of
+hatred to Karla.
+
+<br />
+"Stop it! Earl Leicester and Miss Karla, this is no time to be
+fighting!"
+
+There, His Majesty the King, who had stepped forward to protect Elena
+and me who were lying on the floor, raised his voice and tried to
+admonish father and daughter.
+
+But――
+
+"I will be free to do as I please. Now that the 'actors' have gathered."
+
+Karla spoke leisurely, and turned her eyes, which had been facing her
+father and His Majesty, back to Colette.
+
+"Are you okay with it as well? You don't need 'supporting roles'
+either?"
+
+What do those words mean? Hearing them, Colette smiled wryly and spoke
+to the woman beside her.
+
+"Contractor-dono..., there is someone who is trying to take away your
+happiness. Is that okay?"
+
+At that moment, the woman, who had been repeating strange words and
+actions, stopped moving and turned her eyes around, reflecting Colette
+in her cloudy pupils.
+
+"No! No, no, no, no, kill Karla! Give me Alicia! I am the one who will
+become the queen of this country!!"
+
+Hearing the woman's words, which she spat out like foam, Colette smiled
+broadly.
+
+"――As you wish――"
+
+In the next instant, a massive amount of mana and miasma overflowed from
+Colette, and life force was lost from the girl who had been possessed by
+that woman.
+
+No, it's not life that's disappearing. What's being consumed is the
+"soul" of the original girl.
+
+<br />
+『――――――――――――――――――――――――――――――――ッ!!』
+
+<br />
+Colette let out a cry that no human could hear, and the decorative
+stained glass windows that lined the wall shattered. Fragments of the
+glass rained down on the general public who were too late to escape,
+turning the scene into a hellish scream. From beyond the windows,
+chaotic mana could be seen rising from the buildings.
+
+Crack, something cracked in the distance――
+
+"――I'll help you."
+
+Karla fired multiple fireballs towards it.
+
+Several fireballs flew as if cutting through the night sky, engulfing
+the roof of the building in flames.
+
+Dooooooooon!!
+
+An explosion echoed from afar, and the general public who were still
+safe looked in that direction and let out a scream-like voice.
+
+"The temple!?"
+
+In that direction was the Holy Church's temple. And on top of that roof
+was...
+
+"Amor..."
+
+<br />
+『Aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa!!』
+
+<br />
+A scream is heard from the direction of the temple. No, the roar of a
+beast, not of a human, reverberates, and a giant humanoid figure began
+to move from within the blazing flames.
+
+Amor was defeated by Karla on the temple. Its remains had frozen without
+melting, but Karla had only frozen it and hadn't finished it off, and
+the demon was trying to use it?
+
+But that's not Amor anymore. It's just a monster with Amor's magic stone
+left behind. As proof, that insect monster wasn't coming here, but had
+jumped off the roof of the temple and was attacking the residents.
+
+<br />
+"Aria, go! Don't worry about us!"
+
 "...Understood."
 
-Aria, who had been listening intently to his words, nodded at Dalton's
-words.
+After confirming that the Royal Knights were surrounding the royal
+family, I nodded to Elena and jumped out from beside her.
 
-I don't know what "answer" came out in her mind, but I will follow you.
+First, I should stop Colette, but I can't leave Amor alone either. I've
+also asked Dalton and the others to stand by in case of unforeseen
+circumstances, but I don't know how many residents will be sacrificed
+before my companions arrive.
 
-Aria... you can live in the light.
+"tsu!"
 
-Even if your hands are stained with blood, they are not soiled by blood.
+However, someone attacked me as if to stop me from jumping out.
 
-I'm fine being your "shadow."
+"Aliciaaaaaaaaaaaaaaaaaaaaaaaaaa!"
 
-You are my "light"...
-
-<br />
-The secret meeting with Elena that day was over.
-
-Since we don't know the Hero's character... more than that, the Holy
-Church's intentions, it was decided that it would ultimately be left to
-Aria's personal judgment.
-
-As "Rainbow Sword," they respected Aria's opinion and told us that if we
-broke down, the adults, including Dalton, would stand on the front
-lines.
+That woman! The original girl, "Licia," had low physical abilities, and
+her mana was so low that it could barely be felt, but her attack was
+sharp enough to stop me.
 
 <br />
-"What do you think, Snow?"
+【Name Unknown】 【Race: Human Female】 【Rank ――】
 
-Even so, Aria was still worried, and while we were shopping in the royal
-capital for a long journey, she muttered something like that for a rare
-occasion.
+【Mana: 542/0】 【Stamina: 120/173】
 
-Aria, who has always relied on herself without relying on adults, and
-has basically acted alone and decided alone even when she is with
-someone, is probably not used to being under someone's protection.
-
-"Do as you like?"
-
-At my way of speaking that was like pushing her away lightly, Aria
-showed a slightly dissatisfied face. ...It's a little cute.
-
-"In the first place, I, who have lived more freely than you, couldn't
-possibly understand how to rely on someone, right?"
-
-"...Well, that's true."
-
-It's a little hurtful to be readily agreed with there.
-
-"Aria should really do as she likes. If that causes a problem, you can
-just do what you always do, so nothing will change, right?"
-
-We've lived like that until now. It's just that the scope of the problem
-is a little bigger.
-
-If that causes trouble, but if you eliminate all the problems, the
-problems will disappear.
-
-"I see..."
-
-Aria seemed to have realized something from my outrageous argument, and
-she smiled just a little.
+【Overall Combat Power: ―― (Body Enhancement in Progress: ――)】
 
 <br />
-You can do as you like. It's okay. Because there is a "shadow (me)" for
-that purpose.
+Her base mana is 0? But the mana is there, was that because the magic
+stone had stored the demon's mana? I don't know her combat power, but
+she was enhancing her body beyond its physical limits, and her bones
+were creaking and blood was spurting out just from moving slightly.
+
+"Where are you going? Alicia-san."
+
+Floating directly behind her was the person controlling her.
+
+"Colette!"
+
+The demon in Colette's skin smiled at me with the exact same face she
+had when we met in that town.
+
+"...Were you a demon from the beginning?"
+
+"Fufu... Thank you for dealing with the 'demon (children).'"
+
+The smile she showed was full of mercy, which was hard to believe for a
+demon... but it was overflowing with demonic madness.
+
+<br />
+This is what's terrifying about demons. The terror of demons isn't their
+strength or cruelty.
+
+Even if they're weak demons, they don't fear their own destruction, they
+even find joy in the destruction of their companions, they betray
+everything for pleasure, and they'll even cheer for their own
+destruction.
+
+Colette was a demon from the beginning. I don't know where she switched,
+but she was already a demon when I met her.
+
+From her mimicry ability and the way she treated the bone demons and
+faceless demons as children, I can infer that this demon is older than
+those two.
+
+<br />
+"It's not fair to play just the two of you."
+
+At that moment, a radial flame swept through, engulfing the venue and
+the people who were too late to escape, behind Colette, who dodged the
+attack.
+
+"――Black-haired... woman!"
+
+"Play with me too."
+
+Colette, who had been interrupted, released a flash of mana, and Karla
+blocked it with lightning, causing a shockwave of mana to rage.
+
+<br />
+"Aliciaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa!"
+
+Even during that time, that woman was attacking while shouting.
+
+I took out concealed weapons from 【Shadow Storage】 and slashed at her
+arms and neck, but the wounds were filled with insects and didn't become
+fatal.
+
+Did Colette's ability change Amor as well...? If Colette is the identity
+of the "Nightmare" in that town, then the insects are the cause of
+manipulating the dead and creating the undead with nightmares.
+
+"Give me, give me you! I'm the one who's going to be the happiest!"
+
+"Kuh."
+
+Her muscles tore and her bones shattered from excessive use of her body.
+Her movements are fast, but she's still just using her physical
+abilities. But I can't stop Amor like this.
+
+The moment I felt impatient, a powerful presence and killing intent
+burst forth from under my feet.
+
+"Gaaaaaaahhhhhhhhh!"
+
+A black giant jumped out from my "shadow," and its claws blew that woman
+away.
+
+"Nero!"
+
+Nero had been lurking in my shadow, but he didn't try to get involved in
+the fight between people. Nero is there to protect me, not to protect
+people.
+
+But the reason Nero showed himself is...
+
+"Gaa..."
+
+Nero looked outside the castle. In that direction was the burning Holy
+Church temple, and the screams of people could still be heard.
+
+Did he understand my intentions, or was it to settle the score with the
+"prey (Amor)" that he had once let escape?
+
+"I'll leave it to you, Nero."
+
+――End――
+
+Nero left those words behind and jumped out of the destroyed window,
+heading towards the temple, and I watched him go with my eyes.
+
+<br />
+"Ouch!"
+
+That woman, who had been blown away by Nero, stood up in her
+blood-stained dress. Her chest had been roughly torn open by Nero's
+claws, but the wound was being closed as if insects were filling it in.
+
+"Aliciaaaaa, I finally found youuuu! I'm going to become you! In order
+for me to be happy, to to to to to to to――"
+
+Her face, which had been smiling madly when she found me, changed its
+expression as if it were broken from the impact of the attack, and when
+her swirling eyes looked at me, a single tear flowed from one eye where
+the madness had disappeared.
+
+"…………"
+
+<br />
+Is there still "Licia's" heart left?
+
+Perhaps the soul of that woman wasn't originally left behind, but the
+memory of that woman's obsession is simply overwriting Licia's soul.
+
+Even so, it seems that a "magic stone" as a substance cannot perfectly
+seal memories and thoughts, and I could feel that the soul was suffering
+from the obsession that had been smeared halfway on it.
+
+"...I understand."
+
+I have no obligation to show you mercy. If you picked up that magic
+stone and used its "knowledge," then only I, who gained knowledge from
+the same magic stone, can understand. What you've done so far wasn't
+because you were manipulated by the magic stone, but because of your own
+will.
+
+I have no obligation to save you. However... I also owe that woman
+something.
+
+<br />
+I untied the black dress's asymmetrical right ribbon, and equipped the
+knife and dagger that were tied to my freed right leg.
+
+I won't show mercy. But――
+
+<br />
+"I'll kill you."
 
 
 ---

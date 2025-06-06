@@ -2,236 +2,371 @@
 
 
 
-# 291 Intentions
+# 259 Graduation Event "Finale"
 
-"GUGYAAAAAAAAAAAAAAH!!"
+"Aria..."
 
-"Hmph!"
+In the ruined hall of the royal castle, Elena muttered her name.
 
-A lizard that looked like a chicken... is it a lizard? An uncle named
-Douglas slashed down a monster that was somewhat reptilian and about the
-height of an adult.
+The fire in the royal capital, fortunately or unfortunately, did not
+spread beyond a certain point due to the destruction of buildings by the
+intense battle, or being instantly burnt to ashes. But more than that,
+the six pillars of fire rising from the edge of the royal capital began
+to coalesce in the sky above the capital, emitting an ominous amount of
+mana and stirring up the people's fear.
 
-Since I haven't seen this monster in Claydale or the West, it might be
-unique to this grassland, this rocky mountain, or this area.
+The massive pillars of fire set up by Karla... No matter what their
+meaning, unprecedented damage was expected.
 
-Such monsters appeared frequently, but Douglas slashed them down with a
-single blow most of the time, so it was hardly a problem. If there was a
-problem, it's that the swordsman, Neidhardt, who wasn’t keen on this
-matter, was irritated every time he stopped?
-
-<br />
-"...Snow."
-
-Aria muttered my name as she watched the hero's party, and glared at me
-with just her eyes. ...For some reason, I feel like I'm being scolded
-like this every time I do something.
-
-"I know."
-
-It's because I did something reckless again, isn't it?
+Normally, Elena, being royalty, should have evacuated. However, Elena,
+along with her father the King, the Prime Minister Count Melrose, Elvan,
+and Clara, did not evacuate, but watched the battle of the girls in the
+distance.
 
 <br />
-My body is getting much better. It's much better than when I cleared
-that large-scale dungeon. But even though I currently possess four
-attributes, two of them are combined skills, so my magic stones should
-be much larger than Cerejura-sama, who also has four attributes.
+The castle scribes and knights. Nobles and commoners who had failed to
+escape stopped and watched the battle of the two at the peak, as if
+mesmerized.
 
-She originally maintained attributes that would be burdensome even if
-she devoted herself to magic, while engaging in close combat like Aria
-on the front lines. Furthermore, she couldn't rest because she hid in
-the underworld, so her body became unable to fight for long.
+And Elena clasped her hands to her chest, thinking of the girl she
+believed in, who was about to settle things for the sake of her
+convictions.
 
 <br />
-Adventurer combat isn't that much of a burden. Pain still remains, but
-I'm used to not showing it on my face to some extent.
-
-Compared to when I fought Aria in the royal capital, there's a world of
-difference.
-
-But Aria is afraid that if I push myself too hard, I'll become like
-Cerejura-sama.
-
-She doesn't need to worry...
-
-Because I've decided to use my life for your sake.
+"Win, Aria... You are the 'strongest.'"
 
 <br />
-"Let's go already!"
-
-The battle ended quickly, and Neidhardt, who was irritated, shouted at
-us.
-
-"To make such a loud noise when we're so close... is he hard of
-hearing?"
-
-"Snow..."
-
-When I said that so that only Aria next to me could hear, she must have
-been thinking the same thing, because I wasn't scolded this time.
+\*\*\*
 
 <br />
-The reason we can chat so leisurely is because we're behind them.
+"――――tsu!!"
 
-Originally, it's the adventurer's standard for Aria, who is a scout, to
-go to the front, but these three stopped us from going to the front.
+The "Golden Dagger" I swung down broke through Karla's defenses, and
+fresh blood gushed from her alabaster chest.
 
-The reason for that is that Douglas doesn't like having young women  in
-front of him, and Neidhardt was the same, but I felt like he looked down
-on female adventurers.
+Bakiin...ッ!
 
-The hero... I don't know what Klein is thinking, but maybe he thought it
-would be more interesting that way.
-
-In any case, the root of the reason is that they still don't trust us...
-or is it?
+At that moment, the golden blade thrust into her heart shattered with a
+clear sound, and the orichalcum dagger given to me by the spirits turned
+to dust, including the guard and hilt, and disappeared.
 
 <br />
-If that's the case, it's no different from being with Dalton and the
-temple knights who are further behind.
+Don!
 
-They are following us from a position about two hundred steps away.
+A huge amount of mana was released from Karla's entire body, blowing me
+away, who was above her.
 
-Their current role is to annihilate the surrounding monsters and secure
-a retreat route. They should be fine, but I'm concerned that only
-reptiles have been appearing since we entered this rocky mountain.
+Zusaa...
 
-<br />
-"Ladies, we'll be arriving at the center soon."
+"...What did you do? Aria?"
 
-As we advanced to the depths of the rocky mountain, and the path began
-to pass through gaps in the rocks due to the increasing number of large
-rock formations, Klein, who was walking in front, called out to us.
+Karla, who was holding her face as if dizzy while blood dripped from her
+chest, glared at me through her fingers as I took distance, scraping the
+ground with my heels in the ruined noble district.
 
-Even though it's called a rocky mountain, the summit isn't the highest
-point like a normal mountain. It's like a mountain with many rocks
-buried in it, where the soil and sand have weathered away over a long
-period of time... simply put, it's like a building block that a toddler
-made haphazardly.
+"I told you."
 
-So the center isn't the highest point, and among the gaps in the many
-rock formations, the largest gap is said to be the temporary nest of the
-Fire Dragon.
+I showed her a small glass bottle containing a bright red liquid that I
+had taken out from \[Shadow Storage\].
 
-If that's the center of the rocky mountain... maybe the Fire Dragon
-created it.
+"I'm going to kill you... "
 
 <br />
-We proceeded carefully from there. The taciturn Douglas aside, even
-Neidhardt was becoming less talkative. More than that...
+At the same time as those words, I threw the bottle at Karla.
 
-"It's hot, isn't it?"
-
-It's not exactly a volcano, but the temperature was rising as we
-climbed. I don't dislike the heat, but I'm not quite in top form yet, so
-walking is tiring. Aria, who raised her face at my murmur, narrowed her
-eyes as if scrutinizing, and muttered softly.
-
-"The fire aether is getting stronger."
+The moment her gaze followed its swaying trajectory, I jumped out and
+kicked it as if to crush it with the bottle. Karla leaped down to evade
+the liquid leaking from the broken bottle, more than my kick, and
+slightly frowned at the scent of the scattered liquid.
 
 <br />
-We're finally going to face the Fire Dragon. As I thought that, Douglas,
-who was walking at the front, suddenly turned around.
+"...It seems I've been poisoned with a troublesome poison."
 
-"You two stay there and watch our battle without interfering."
+"............"
 
-"Douglas!"
+Half right. The wound from the dagger thrust into her heart is not as
+deep as the blood flowing from it would suggest. That's why Karla judged
+her physical condition was due to the poison smeared on the dagger.
 
-Neidhardt raises his voice at the sudden statement.
+Karla's entire body was covered in wounds that were beyond healing, and
+she was barely clinging to life with the light magic enveloping her
+body.
 
-This Fire Dragon subjugation was supposed to be to confirm Aria's
-strength. If she really has the ability to defeat the Dark Dragon, then
-there's no point in the hero, who was informed of the continent's threat
-by the spirits, being here.
+My beloved weapon had cracks in it from the fierce battle, several of my
+bones were cracked, and my left arm was already unable to move properly.
+I spat out the blood overflowing in my mouth, as if I had taken damage
+to my internal organs, and Karla smiled faintly with her bloodied lips.
 
-"Neidhardt... we're not so weak that we need to make these girls fight.
-If the three of us are here, there shouldn't be a problem even if we're
-facing an attribute dragon."
+Ah, that's right...
 
-"That's true, but..."
+Daan!!
 
-Neidhardt frowned, glanced at us, and clicked his tongue softly.
+We leaped out almost simultaneously and kicked each other, blowing each
+other away.
 
-"Hmph. Watch our power carefully. This world only needs us, who were
-chosen by the spirits!"
+Even if only a sliver of life remained, Karla would not stop.
 
-<br />
-Saying that, Neidhardt and Douglas proceed ahead.
+Even if there were a thousand knights in this place, she could not be
+killed.
 
-What is Douglas thinking? Does he have any thoughts about what Klein is
-doing? Neidhardt is simple. He seems to have decided to prioritize his
-own feelings over the hero's intentions.
+"I'm the only one who can kill you."
 
-"What are you going to do? Aria."
+"That's right... Come. I'll exchange it for your life."
 
-"...Let's go."
-
-Whether to witness it or to discern it, Aria decided to proceed. I don't
-understand what Klein is thinking the most, but if I don't know that,
-I'll be on the defensive.
-
-My opinion isn't necessary. Besides, I also need to discern it.
+Karla's defense was already beginning to crumble. The black thorns
+covering Karla's body were also beginning to wither and scatter, with
+black rose-like petals scattering.
 
 <br />
-Klein, who shrugged and started walking with a mask-like smile at us who
-had started moving on our own with our own thoughts, let out a faint
-murmur as if sighing lightly.
+Doon!!
 
-"...That would be a problem."
+Karla didn't have the leeway to use magic or martial arts, and switched
+to a tactic of turning her life-draining mana into shockwaves. I was no
+longer able to maintain Reality Breaker, and countered with Iron Rose
+body enhancement and the martial arts I had honed in previous battles.
 
-<br />
-What does that mean?
+I heard the sound of a rib cracking from the shockwaves released by
+Karla. Without flinching, I moved forward and struck Karla's forehead
+with a headbutt.
 
-It seems that Klein has intentions other than seeing our abilities. It
-wouldn't be a problem if it's something unrelated to Aria, but if...
+"――tsu!!"
 
-<br />
-"--It's here."
+At the same time, blood spilled and flowed from our foreheads as they
+bounced off each other. Karla dyed one eye red, and wore a gentle smile.
 
-Douglas's voice, who was proceeding at the front, interrupts my
-thoughts.
-
-Certainly, I feel a nostalgic sensation... I feel strong fire mana. But
-in the center of the rocky mountain that we arrived at -- a wide, flat
-space like an arena -- there was no sign of the Fire Dragon we were
-looking for.
-
-But we haven't made a mistake with the location. The wide space was
-littered with the remains of bones that looked like those of large
-beasts, and all of them had traces of being crushed with great force.
+"Too bad... Time's up."
 
 <br />
-"...Tch, it hasn't returned yet."
+"tsu!"
 
-"It seems so."
-
-Douglas responded to Neidhardt's complaint, crushing a bone as if to
-verify it.
-
-From its condition, the bone seems to have been left for a long time...
-perhaps for hundreds of years. Or perhaps it was burned until it became
-so brittle.
-
-"Klein! Let's rejoin the guys in the back!"
-
-In response to Neidhardt's words, Klein didn’t answer anything, but kept
-his mask-like smile on. At that moment, Aria raised her face as if she
-had been repelled.
-
-"Snow!"
+A burst of shockwaves was released from Karla's entire body. Karla
+blasted me away, even taking damage herself, and using that momentum,
+rose once again into the night sky. Behind her... A giant pillar of fire
+was about to become one in the night sky.
 
 <br />
---Hyuu!
+"The match is mine. So you'll die with me..., Aria."
 
-In the next moment, the sound of something cutting through the wind was
-heard, and everyone instinctively moved away from the spot. Then, with a
-ground-shaking roar, the corpse of a giant beast fell.
+<br />
+Smiling happily... and just a little sadly, Karla raised both hands to
+the heavens.
 
-But that's not the problem. Everyone looked up at the sky, where a
-"dragon" covered in bright red scales, with huge wings spread out, was
-glaring down at us.
+Rank 8 fire magic - it was not the way she wanted to end things, but her
+goal would still be achieved.
 
+Karla looked around the royal capital where flames were still smoldering
+one last time, and brought down the mana she had put into both hands.
 
+<br />
+"――\[God's Wrath (Megiddo)\]――"
+
+<br />
+With Karla's activation words, a huge amount of mana swirled like a
+dragon in the sky above the royal capital, and then――
+
+<br />
+"――Eh."
+
+The huge amount of mana scattered in the night sky, dissipating into
+mist.
+
+Even the few remaining clouds disappeared from the impact of the mana's
+disappearance, and Karla, who was staring up at it in amazement amidst
+the starry sky, quietly turned her face to me.
+
+"...Aria!!"
+
+Karla and I glared at each other from the sky and the ground.
+
+"I'm going to kill you. But..."
+
+Daan!!
+
+At that moment, using the remaining \[Levitate\], I instantly soared
+into the sky and kicked Karla's chin.
+
+"I won't let you have it your way."
+
+<br />
+The misfire of God's Wrath (Megiddo) - no matter how amazing a magician
+Karla was, fire magic could not be activated without the fire attribute.
+
+That was the "price" Karla had sought from the spirits.
+
+<br />
+"Kuh!"
+
+Black thorns shot out from Karla, and while my shoulders and arms were
+slashed by the thorns, I dodged them by spinning around and slammed my
+right elbow into Karla.
+
+Karla caught it with an arm wrapped in thorns, and then, using the
+thorns, threw me backwards while spinning, and fired mana as a shockwave
+at that spot.
+
+"――!"
+
+I was momentarily dazed by the force of the impact. But even so, I
+grabbed Karla's thorns, and with that momentum, flew towards the castle,
+dragging Karla along.
+
+<br />
+"Aria!!"
+
+I heard Elena's voice. I glanced for a moment at the destroyed hall, and
+saw not only her but also many other figures. But in that instant, Karla
+regained her stance and slammed me into the floor of the hall as if
+kicking me away.
+
+"It's not over yet!!"
+
+Baan!!
+
+A sound like the air bursting was heard, and Karla, having released a
+shockwave on her own back, was covered in blood, but she still kicked
+out with her mithril heels, which were no longer anything but weapons,
+at the fallen me with all her might.
+
+Gakin!!
+
+"tsu!"
+
+I took it head-on. Karla's heels were deflected by the "reverse scale" I
+had placed in my chest, and I grabbed the dress of Karla, who had
+greatly lost her balance, with my right hand and slammed Karla to the
+floor over my shoulder.
+
+<br />
+"Ariaaa!!"
+
+"Karlaaa!!"
+
+<br />
+The voices calling each other echoed across the battlefield.
+
+Quickly stamping my heels, I jumped over Karla, who was trying to get
+up, as if riding on top of her, and pinned both of her hands to the
+floor with the blades on my heels.
+
+"Kuh!"
+
+Karla's face contorted and she let out a groan. I wrapped the pendulum
+thread I had taken out from \[Shadow Storage\] around Karla's neck, bit
+the end of the thread with my teeth, and pulled the thread with my
+remaining right hand, and Karla's eyes widened.
+
+"――tsu!!"
+
+The thread dug into Karla's slender neck. Both of her hands were sealed
+by my legs, and even if she could move her legs, kicking in this
+position would not inflict any damage.
+
+Shockwaves of mana released by Karla struck my body from all directions.
+I endured it while using my teeth and right hand, and pulled the thread
+with all my strength.
+
+<br />
+No one in this place reached out to help.
+
+Not even gods or spirits, I would not let anyone interfere!
+
+Killing intent and intimidation burst forth from us as if rejecting
+everything, and the moment the shockwaves stopped, Karla closed her eyes
+and smiled as if falling asleep.
+
+"--Aria--"
+
+I thought I heard Karla's lips... mutter that.
+
+<br />
+We met six years ago--.
+
+Since then, Karla had hoped to die by my hand.
+
+And finally... Her wish came true.
+
+<br />
+Gishii...ッ!
+
+The sound of bones creaking echoed in the silent hall. I released the
+thread from my mouth, and while collapsing as if all strength had left
+me, I gently touched Karla's cheek with my trembling hand.
+
+<br />
+\[Karla Leicester\] \[Race: Human Female\] \[Rank 5\]
+
+\[Mana Value: --/--\] \[Stamina Value: --/--\]
+
+<br />
+"Karla..."
+
+Karla, completely pale, was dead, smiling.
+
+In the atmosphere where no one could make a sound or move, I put my
+still moving right hand around Karla's waist and picked her up.
+
+I quietly started walking, and stopped in front of a certain person.
+
+<br />
+"The request is complete."
+
+"Alicia..."
+
+My grandfather... Count Melrose, gasped at my words.
+
+I'm sorry to my grandfather and grandmother, but... For her death, I had
+no intention of living my life as a princess of Melrose.
+
+And Elena, whose gaze met mine for a moment, nodded quietly as if she
+understood everything.
+
+<br />
+"Wait, where are you going!"
+
+"Aria!"
+
+As I walked towards the broken window with Karla in my arms, His Majesty
+the King's voice echoed, and not only that, but I also heard the voices
+of Mikhail and Theo, who had rushed over. I stopped at the window and
+gently turned back to them.
+
+<br />
+"If you have a request, I will always rush to your aid."
+
+<br />
+I jumped out of the window with Karla in my arms, and amidst the roar
+released by Nero, who had caught us on his back, we disappeared into the
+darkness of the night.
+
+<br />
+------------------------------------------------------------------------
+
+The showdown with Karla.
+
+In the end, I aimed for a dirty showdown to the death, not a flashy
+special move, friendship, or victory.
+
+What lies in Aria's heart as she carries Karla away...
+
+<br />
+Next time, the final episode of the main story!
+
+<br />
+Advertisement!
+
+"The Strongest Survival as the Heroine of an Otome Game" Volume 4 will
+be released on July 20th!
+
+The content is the dungeon capture arc! There is a story of Karla with
+nearly 20,000 words written for it! Reservations have also begun!
+
+The cover illustration is also being released in the activity report!
+
+<br />
+And, "Demon Princess" Volume 1 will be released on June 2nd.
+Reservations have also begun!
+
+Thank you for your support!
 
 
 ---

@@ -2,266 +2,385 @@
 
 
 
-# 267 The Will of the Dungeon
+# 235 Distorted Holy War 2
 
-As we entered the lower levels of the dungeon, we began to encounter
-more monsters that were not afraid of us.
+The moment Kirkland was certain of victory—a girl appeared, as if
+tearing through the darkness with a "voice," and brought down a black
+blade.
 
-There are beast-humanoid monsters like ogres, but as Aria hypothesized,
-the proportion of beast-type monsters is increasing as we go deeper.
+(What!?)
 
-While killing these monsters, I continue to contemplate quietly on top
-of the Kitty.
+Where did she come from? No, once you realize her identity, you can only
+accept any absurdity.
 
-<br />
---Battle--
-
-"It says to work harder."
-
-"Yes, yes."
+Kirkland knew about her too. He had even seen her from afar. Her Royal
+Highness's hidden blade. Rank 5 adventurer. And... anyone in this
+country who knew even a little about the underworld knew about her.
 
 <br />
-I continue to contemplate while keeping the monsters at bay from a
-distance.
+"Cinder Princess"—.
 
-I decided to fight with the magic of "lightning" and "ice" instead of
-the fire attribute I lost.
+The dragon-slaying girl who single-handedly rescued the Princess from
+the hands of the demons, having turned the assassin's guild and the
+thief's guild into enemies and destroyed many of their branches.
 
-Lightning magic is a composite spell of water and wind... but what about
-ice magic...?
-
-Aria's "Illusion Magic" is also a composite magic of light and darkness.
-But, I can also use light and darkness at a high level, but I can't use
-Illusion Magic.
-
-Illusion Magic is wrapping the magic itself around one's body. It's not
-just wrapping it around the surface like the earth magic spell \[Rock
-Skin\], but it can be said that it has the magic itself residing in its
-body.
-
-I speculate that the reason I can't use it is because my magic control
-skill is insufficient. Probably rank 6... no, at least level 7 magic
-control skill will be required.
-
-Aria made it possible by using the \[Combat Skill\], which is a magic
-that uses the body called \[Iron Rose\].
-
-The technology of Cerejura, which was the basis for this, probably kept
-magic control within rank 5 by wrapping it around the weapon for just a
-moment.
+To antagonize her is synonymous with "death," the strongest assassin...
 
 <br />
-I can't use body-enhancing combat skills like Aria. I don't even have a
-skill for melee weapons. As a lady, I've never held anything heavier
-than a severed head.
+It was because she went missing that the Second Knight Order moved. Many
+thought that the Cinder Princess could not die easily, but they were
+intoxicated by the "immortality" bestowed upon her, and did not consider
+it a true threat.
 
-Even when I was four years old, it was difficult to carry my brother's
-remains...
+Kirkland was one of them. Because she looked like a graceful and
+beautiful girl, he and many knights misjudged her, despite knowing her
+reputation. And, due to Prince Amor's confident words and actions,
+Kirkland himself came to think so by gaining a part of her power.
 
-Well, that doesn't matter, but in short, I can't imitate Aria or
-Cerejura.
+With this power, we can't lose. Two hundred is too small a number for a
+knight order going to the battlefield, but it's a good number for
+conducting a surprise attack.
 
-<br />
-Lightning magic is relatively stable, but I feel that its power has
-decreased slightly. It's a slight difference that only I can feel.
-
-Compared to that, I feel that something is clearly missing from ice
-magic.
-
-From here on, it's my own consideration, but I think that magic is
-intricately intertwined with various attributes. For example, with
-"Storm" magic, the magic of mages who don't have the wind attribute,
-whether it's fire or ice, is clearly slower than mine.
-
-I think that if I didn't even have the life magic \[Wind\], it wouldn't
-have activated, maybe?
-
-That's why it may be essential for mages to memorize all life magic.
+Especially in urban warfare, thousands of people cannot move at once
+like on a large battlefield. Only a few dozen people cross spears at a
+time. In that scale of combat, individual fighting ability is
+prioritized over the size of the army, and without exhaustion or
+attrition, we, who can continue to fight forever with only a small
+amount of food and spare weapons, are truly an invincible army.
 
 <br />
-Therefore, mages with many attributes are simply strong.
+However, Kirkland is also a knight of this country, and prides himself
+on loving this country more than anyone else. Generally speaking, he
+understood that what they were doing was an act of rebellion against the
+country. Even if he felt frustrated with the state of the nation,
+Kirkland was not so childish as to not understand that it was not easy
+to correct it politically.
 
-Therefore, my Lightning magic, which lost the fire attribute, feels a
-little weaker. Even so, fire is not that much involved in lightning, so
-it's a slight decrease.
+But everything changed when the Second Knight Order began to associate
+with Prince Amor, and they heard the "appearance" and "voice" of the
+Saintess who visited the Second Knight Order's garrison through him.
 
-But ice magic is different. Generally, ice magic is said to be an
-advanced water magic, not a composite magic.
+By seeing her appearance and hearing her voice, Kirkland and the others
+naturally harbored "goodwill" towards her existence.
 
-Even so, if my consideration is correct, ice magic involves more other
-attributes more deeply than other attribute magic, right?
-
-<br />
-The wind attribute gives speed to ice magic.
-
-The earth attribute gives hardness to ice magic.
-
-Fire magic... I think it's related to "temperature".
-
-That's why it doesn't freeze instantly. Because it doesn't freeze the
-internal organs instantly, there is a possibility of receiving a
-counterattack when encountering an enemy of Aria's level.
-
-If that's the case... I have no choice but to use ice magic with the
-remaining two attributes in mind.
-
-Is it something like this...?
+If they harbored goodwill, they would believe her words. They would stop
+doubting her words. And before they knew it, the hundreds of knights
+stationed at the Second Knight Order's garrison, which Prince Amor was
+involved with, had turned into devotees of Prince Amor and Saintess
+Licia.
 
 <br />
-"--\[Ice Whip\]--"
+A "holy war" by only two hundred people had begun. If they could subdue
+Dandorl and Melrose, the old regime... the old royal family that
+controlled this country, this country would change greatly.
+
+If those two houses did not move, the knight orders in the royal capital
+other than the guards would not function properly, and the neutral
+nobles in the royal capital would refrain from active intervention.
+
+There was no way that they, who were doing "right" things, could lose.
+The slight conflict that existed at first, by loving the "Saintess,"
+they came to believe that it was right.
+
+If there were any concerns, it was the intervention of the "Thorn Witch"
+and the "Cinder Princess," who were called the strongest and worst, but
+they came to believe without a doubt that they could win as long as
+Prince Amor, who had gained true power through the Saintess, was there.
 
 <br />
-My ice whip, which was released with the earth attribute in mind, did
-not beat down the three dire wolves, but pierced the three at the same
-time and froze them from the inside.
+But, the "Cinder Princess" appeared. How did she notice? How did she
+reach this place? He heard that the "Cinder Princess" was deeply
+involved with the underworld. Even if she knew the route the Prime
+Minister was taking this time from the head maid of the Princess in the
+castle, how far did he think it was from there to here?
 
-"It's surprisingly useful."
-
-"Gaa..."
-
-"It says to do more."
-
-"............"
-
-I wonder why Aria can understand Kitty's words?
+Kirkland felt a sense of crisis once again towards the "Cinder
+Princess." This woman is dangerous. She will definitely be an obstacle
+to Prince Amor and the Saintess-sama.
 
 <br />
-After that, our capture speed also increased, and we reached the 80th
-floor.
+"Aaaaaaaaaaaaaaaaaaaaaah!"
 
-But...
+Even while being bisected from the top of his head, Kirkland let out a
+scream that could not be heard and swung his sword.
 
-"The number of monsters is decreasing?"
+If you die too much, your will disappears. Without knowing that it was a
+transformation from the living to the dead, Kirkland stood up with his
+mental strength and unconsciously swung his sword against the "enemy"
+who could become an obstacle to the "Saintess."
 
-"Yeah."
+In response, the "Cinder Princess" narrowed her eyes slightly, and while
+stepping in, plunged a dagger into his heart and tore his head apart
+horizontally.
+
+"Gu..."
+
+Kirkland's consciousness disappeared, and in that moment, he questioned
+himself whether he was really trying to do anything with "his own will,"
+but he could not get an answer, and his consciousness disappeared into
+eternal darkness.
 
 <br />
-It's not just that I've started using new tactics, or that Aria and
-Kitty have gotten used to the new dungeon monsters, but the reason why
-the capture speed is increasing is that the number of monsters that were
-increasing is decreasing each time they go down.
+In a moment of fierce attack, blood mist danced, and the light like
+burnt iron disappeared from the girl's hair, which fluttered her cloak
+as if to repel it, and her pinkish-gold hair shimmered in the moonlight.
+
+The people of the Melrose family who were there—especially those who had
+served the Melrose family for a long time—were captivated by the
+brilliance like the "Moon Rose (Melrose)" and reminisced about the
+nostalgic past.
 
 <br />
-"Gaa..."
+"... Aria!!"
 
-The kitty looked ahead... towards the basement, as if worried about
-something.
+Mikhail's voice, who was the first to regain his senses, echoed, and the
+others were brought back to reality by that voice, but the
+girl—Aria—began to move on her own before Mikhail could move.
 
-I feel like not only the dungeon's ecosystem but also "something" is
-going wrong.
+"Mikhail, not yet."
+
+There are still two undead there. The knight had already lost his human
+will because he had died too much, but even so, he recognized Aria as
+his enemy and attacked her.
+
+But, too slow—.
+
+Slash! Before the knight's attack could reach its fastest speed from the
+start, Aria's feet, stepping out with a blurring speed, gouged the
+ground and slashed his neck, stabbing the bones of his neck joint.
+
+Even if he could use his original skills and was capable of a certain
+degree of independent action, his ability to act would be reduced if his
+head, the command system, was severed.
+
+Aria, who had also decapitated and neutralized the last one, said, "I'll
+leave the rest to you," to the knights of the Melrose family, who were
+stunned by her overwhelming fighting ability, and headed towards Count
+Melrose, who was beside Mikhail.
+
+<br />
+"Prime Minister, are you aware of the situation?"
+
+"Ah, yes..."
+
+Bertolt felt a slight pain, not from Aria's dashing appearance and
+annihilation of the undead enemies, but from the fact that she spoke to
+him as "an adventurer hired by the royal family" rather than as his
+"granddaughter."
+
+But even so, Bertolt was a "noble" who protected the people of this
+country, and he did not show that pain on his face and faced Aria.
+
+"I am aware that Prince Amor has rebelled. I did not expect his actions
+to be so quick, but presumably Dandorl is also under attack in the same
+way."
+
+"The castle has been notified, but..."
+
+Aria began her report as a party concerned without changing her
+expression, as if she had not noticed Bertolt's expression.
+
+When he learned that Dandorl's General Commander had led his forces to
+the mansion, and that the Rainbow Sword and Karla had headed there,
+Bertolt felt a tinge of anxiety that the "Thorn Witch" had headed there,
+but still showed a look of relief as Prime Minister.
+
+"If there is long-range communication from the castle, Dandorl will have
+the Rainbow Sword and the local knights supporting them."
+
+"I think it would be best for you to return to the castle, Prime
+Minister, but what will you do?"
+
+"..."
+
+Not Bertolt, but Mikhail, who was standing by his side, gasped slightly
+at Aria's words.
+
+Kirkland was the only one who discovered Bertolt and the others, but the
+attack team could not have been just them. If Bertolt returns to the
+castle, Aria will inevitably be assigned to escort him.
+
+If he acts as Prime Minister, it is best to return to the castle. It
+will also thwart the plans of Amor and the aristocratic faction who
+incite them. But in that case, he would be cutting off Bertolt's wife
+and those who have served the Melrose family so far, and his name as
+Count would be tarnished. Mikhail was also refraining from speaking
+because he understood that it was not easy to make a decision.
+
+Count Dandorl was also forced to make a similar choice, and returned to
+the mansion to protect his pride and his house. In their case, their
+position was closer to that of a knight, and the act of allowing an
+attack itself would be fatal.
+
+Even if it was not the best thing to do as the supreme commander of the
+national knights, it was also necessary as a Count who controlled many
+dependents.
+
+<br />
+"... I'm going to the mansion. If you're going to notify the castle,
+that's closer. We will obtain His Majesty's permission and wait for the
+arrival of the knights. Aria..."
+
+Bertolt made the same decision as Dandorl, and rather than a political
+settlement, he hoped to gain a stronger weakness against Prince Amor,
+the Saintess faction, and the aristocratic faction by directly defeating
+Prince Amor's forces. Even if that was not his true intention, his
+position as Prime Minister required such a "reason."
+
+But there is something necessary for that.
+
+"As Count Melrose, I ask Aria for a favor. Please lend me your hand."
+
+"Of course."
+
+<br />
+Bertolt chose to send his granddaughter to a place where she might die,
+as "Prime Minister," and Aria accepted her grandfather's request as an
+"adventurer."
+
+"..."
+
+Mikhail doesn't know the relationship between the two. He doesn't even
+know about his relationship with Aria. He just wanted to be by her
+side... that's what he thought.
+
+But even so, he had felt something in common since the first time they
+met. Perhaps his grandfather knows something. Aria is also aware of it.
+But the two of them didn't say anything, and Mikhail lowered his eyes
+slightly at the unnatural and awkward two people.
+
+Aria used \[High Heal\] on the knight who was receiving healing magic,
+instructed everyone to ride on horseback, and took the lead on foot.
+
+""...""
+
+The knights who knew the "old days," the older ones, straightened their
+posture as if they were treating a member of the "master's family."
+
+<br />
+"I'll lead the way. Follow me."
+
+Aria, who started running at a speed comparable to that of a horse while
+on foot, made the Melrose people hurry to run their horses.
+
+"..."
+
+Bertolt superimposed the image of his daughter from the past on the fact
+that he had involved his granddaughter in a fate where she might die,
+and on Aria who had rushed to the aid of Melrose's crisis, and continued
+to stare at Aria's small back and swaying pinkish-gold hair running in
+the darkness from the carriage window with a complicated expression.
 
 <br />
 \*\*\*
 
 <br />
-The dungeon was about to change.
-
-A dungeon is a cave or structure that has been transformed into a
-monster by an ancient hermit crab that parasitized it as a "shell." Over
-the years, it has become an existence that cannot move as a "core," but
-it takes in the residual thoughts of creatures that have died in the
-dungeon, and its intelligence has reached the level of a spirit.
-
-Apart from that, there is also a dungeon spirit that has absorbed the
-thoughts in the dungeon.
-
-The dungeon's will is to survive. To take in the life force of creatures
-and the magic of the earth and grow infinitely.
-
-The dungeon spirit's will is to return the dungeon's power to the world.
-The spirit, which has taken in the wills of countless heroes, passes
-that power on to new heroes and guides the world for the better.
+"Everyone, don't stop! Break through!!"
 
 <br />
-The dungeon was captured a few years ago.
+Around the time Aria joined Melrose, the group led by Dandorl, the
+Supreme Commander of the Knights, heading to the mansion in the
+outskirts of the royal capital, unfortunately encountered the Second
+Knight Order.
 
-It has been captured every few decades to a few centuries in the past,
-but what was captured a few years ago was not a saint or a king who
-guides people, but a brute force attack by weaklings who were imprisoned
-by desire and risked countless lives.
+The knights of the First Knight Order led by Count Dandorl had a little
+over fifty riders, and if they fought properly, they should have been
+able to fight even twice the number, but because their enemies were
+"undead," the knights of the First Knight Order were gradually defeated
+and their numbers were reduced.
 
-<br />
-The dungeon thinks in order to "survive".
-
-Even weak creatures can capture the dungeon if there are enough of them.
-It is currently satisfied with just the rewards given by the "spirit",
-but foolish people may be imprisoned by further desires and threaten the
-dungeon's survival.
-
-The dungeon spirit thinks for the sake of the "world".
-
-It thought that even weaklings could become "heroes" if they were given
-\[Gifts\] and work for the world. However, those who received the
-spirit's grace used the grace for their own desires and killed countless
-of their own kind.
+In response, the Supreme Commander of the Knights, who had already been
+informed of the enemy's identity, chose to retreat immediately in order
+to join the Dandorl Knights in the mansion rather than engage in battle.
 
 <br />
-The dungeon thinks. This dungeon may have been too weak.
+Even if the enemies are undead, they have a chance of winning if they
+can hold the castle. The main force of the First Knight Order, which
+could not be moved due to the eyes of the aristocratic faction, had
+already been prepared for departure by the adjutant towards Dandorl and
+Melrose.
 
-In order to survive, it is necessary to get external creatures to enter
-to obtain the mana and life force of dead creatures, and it has been
-adjusted to create a suitable environment, but it believes that it is
-not good for weaklings to easily defeat the monsters in the deepest
-part.
+But even that was not possible unless the Supreme Commander of the
+Knights arrived at the mansion and caught evidence of the rebellion to
+make contact.
 
-The dungeon spirit thinks. It may have expected too much from people.
-
-The "hero" that the spirit seeks must have not only the strength of
-heart, but also the ability to be a hero. At the very least, it believes
-that monsters that weaklings can defeat in groups are not strong enough.
-
-<br />
-The dungeon decides.
-
-The dungeon spirit decides.
-
-A strong monster suitable for the deepest part of the dungeon is
-needed...
+It can only be said that they were really unlucky. And what was even
+more unlucky was—
 
 <br />
-There is no communication between the dungeon and the dungeon spirit.
-Even if they knew of each other's existence, there was no point in
-communicating due to the difference in their thought patterns.
+"Hahaha! The end has finally come, Dandorl!"
 
-Two different wills made the same decision, and these two wills caused
-the strong monsters in the dungeon to fight each other, devour each
-other, and begin to aim for the deepest part while repeating their
-evolution.
+There was a figure who seemed to be Prince Amor among the attackers.
 
-<br />
-Strong monsters need a high level of intelligence to see through the
-enemy's tactics and fight like "people".
-
-Strong monsters need claws and fangs and the wild strength to fight like
-"beasts".
-
-The monsters will devour each other, and for a while the area around the
-lowest level will be thinly populated. However, the two wills believe
-that this is also a necessary process.
+It's uncertain information, but he heard that Amor has the power to
+create the undead. With Amor's presence, the undead were further
+activated, and Dandorl was suffering in vain losses.
 
 <br />
-Dozens of strong monsters were gathered in the deepest part by the will
-of the dungeon.
+"Why are you doing this!?"
 
-The dungeon spirit uses that will to give "blessings" to the strong
-monsters and evolve them into one monster.
+"It is necessary for the rebirth of this country! I can do it now!"
+
+When the Supreme Commander of the Knights shouted at the Second Knight
+Order that had caught up, a figure in a coat at the head of the Second
+Knight Order replied.
+
+From the voice, the Supreme Commander of the Knights was convinced that
+the person in the coat was Prince Amor, but why was he hiding his "face"
+after coming this far?
+
+"Nonsense... Are you out of your mind, Amor!!"
+
+"That's disrespectful, Dandorl! I am the one who will be the consort of
+the Queen !"
+
+"Queen!? Consort!? Have you really gone mad!?"
 
 <br />
-Two merged thoughts...
+Dandorl, the Supreme Commander of the Knights, knows Amor's true
+intentions. His goal was not to make the Crown Prince the king, but to
+become one of the consorts of the de facto "Queen," with him as a
+puppet.
 
-However, neither has a "human" heart.
+It is not known whether this is due to his delusional delusion or the
+true intentions of the Crown Prince faction. But, the Supreme Commander
+of the Knights intuitively understood who the person who would become
+the Queen was.
 
-The dungeon is only interested in its own survival, and even though the
-dungeon spirit loves humans, it could not understand human life.
+Probably, that suspicious woman—the "Saintess."
 
 <br />
-"Gaaaaaaarrrr!!"
+"Come, it's about time to finish this! Perish, Dandorl! Relic of the old
+generation!"
+
+"Kuh!"
+
+If Amor is speaking seriously, this attack will not only stay in Dandorl
+and Melrose, but will also harm the royal family.
+
+An enormous amount of mana overflowed from Amor, who had fallen into
+madness, enough to be felt even by the distant Supreme Commander of the
+Knights, and just as he was about to release something—
 
 <br />
-A huge shadow roars in the deepest part of the dungeon.
+Boom!!
 
-In the dungeon in the human country... The Kingdom of Claydale, the
-worst monster that will be a disaster for the people was now born.
+<br />
+Flames rose up around Amor as if swirling.
+
+Several knights were caught in the flames, and the spreading flames
+scorched the night sky, and the horses on Dandorl's side stopped neighing
+and trembling, and a "girl's" voice spilled from the night sky.
+
+<br />
+"Oh my, am I the first one?"
+
+<br />
+A girl with skin like white wax and billowing jet-black hair spoke into
+the flames, and Amor, whose right half of his body had turned into
+wriggling insects from the flames, grinned distortedly with only half of
+his face left.
+
 
 
 ---

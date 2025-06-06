@@ -2,286 +2,641 @@
 
 
 
-# 275 Journey
+# 243 Distorted Holy War 10
 
-"Samantha... wasn't she the 'Sand Witch'?"
+"——【Reality Breaker】——"
 
-Having prepared our equipment, we were to meet the previous mage,
-following Dalton's instructions. We were told that she would teach us
-about a mage's approach as an adventurer and their role with the
-"Rainbow Sword," but...
-
-"I wonder what kind of person she is?"
-
-Samantha Samantha, a legendary adventurer who remained active until the
-age of one hundred despite being human... Well, judging by the fact that
-she uses her own name as her surname and makes her family call her that,
-I think she's quite a character, but when I asked Aria, she tilted her
-head in a way that was unusual for her.
-
-"...'Senile'?"
-
-"...What do you mean?"
-
-"Gaa..."
-
-The black kitty phantom on Aria's shoulder chimed in at my question,
-which made me stop in my tracks. I wonder if the kitty has met her
-before?
-
-She may be elderly, so it could be that, but Aria's way of saying it
-sounds different.
-
-"Well, we'll know when we meet her."
+Particles of "darkness" scattered from the combined light and dark magic
+【Reality Breaker】, and my body teleported several tens of meters away.
 
 <br />
-Apparently, this Samantha is in the Dance Marquisate. It's about two
-weeks away from the royal capital by carriage, but we're walking there.
-
-Walking, yes, walking. With our own two feet. There are many inhabited
-places on the way to the Dance Marquisate, so we can't travel by riding
-the kitty.
-
-I could have used space-time teleportation when I had free use of
-Blessings, but I don't intend to raise the levels of my dark magic and
-light magic any further.
-
-I'd rather spend that time on studying and researching ice magic and
-lightning magic, and besides, "light" and "dark" suit... Aria much
-better.
+\*Thump!\*
 
 <br />
-"However, even if not a public carriage, wouldn't it be better to hire a
-carriage?"
-
-We have money, though it's not mine.
-
-"Snow should walk to build up her stamina."
-
-"That's exactly right, so I can't say anything."
-
-Well, fine. I don't hate walking that much.
-
-But, could you please stop preparing such an enormous amount of food at
-every meal? I can tolerate the unique flavoring using strange herbs, but
-my stomach, which has only ever eaten what was necessary to survive,
-isn't that big.
-
-"I see. Then I'll try changing the ingredients."
-
-"I'd prefer it if you changed the cooking method, if possible."
+The black knife I swung the moment I appeared, cleaving through the
+trees while engulfing particles of light. However, Amor was not there;
+his figure had already leaped to the next tree, and I could only see his
+back.
 
 <br />
-We travel while camping in the forests along the road. I suppose the
-highlight of such a journey would be the meals, but from the very next
-meal, Aria prepared food that I couldn't even tell what the ingredients
-were, let alone whether it was even food.
-
-"...What is this?"
-
-"Bee larva with cheese and honey."
-
-It seems nutritious...
-
-Aria hunted in the forest... rather than "took," she apparently killed
-all the giant bees with a knife, the kind that could kill a person with
-a few stings, and brought back the larvae from their nest, as well as
-the milky-white liquid used to raise the queen bee.
-
-After boiling it with Aria's special herbs, she mixed it with cheese,
-put it in a dish, and then served it with plenty of honey.
-
-Is this cooking? Isn't it alchemy? The ingredients are too strong to be
-medicine, and the visual impact is too strong to eat it as a snack.
-
-Well, I'll eat it though...
+"——tsu"
 
 <br />
-"I've already told Dalton, but I'll share the information with Snow as
-well."
-
-After somehow finishing the meal and enjoying some herbal tea, Aria, who
-was sitting on the opposite side of the campfire, said this while
-stroking the phantom kitty on her lap.
-
-"Is it about work?"
-
-"No, it's just a rumor I heard from Elena, but I want to hear Snow's
-opinion as well."
-
-A rumor. If that dreamy older brother told the realistic princess, who
-then told Aria, who then shared it with Dalton, it must be more than
-just a rumor.
-
-"It's about the 'Hero'."
+Amor could leap with his monstrous form, but he could not fly through
+the sky. I could jump to locations within my sight, but my gaze would
+momentarily stray from my target.
 
 <br />
-Hero... a courageous one. One who appears when despair befalls the
-people, and gives them courage.
-
-A fairy tale that even children in this country know.
-
-Most of them are stories about how people are attacked by evil wizards
-or demon lords, and the hero and the saintess defeat them and live
-happily ever after.
-
-However, the "saintess" who appeared in this country was just a strange
-woman, and the being called the "demon lord" was actually just the king
-of a demon race country, and while the demon race itself was an enemy of
-the human race, he alone did not have the power to destroy a country.
-
-But, heroes and saintesses aren't just legends.
-
-It wasn't in the Leicester family's forbidden books, but it was written
-in the forbidden books I found in the Holy Church's temple. Of course, I
-read them without permission, but I'm glad I was able to take them out
-before burning down the temple.
+If he ran on the ground, I could catch up with teleportation, but Amor,
+currently leaning more towards a monster than a human, was likely
+heading towards the royal capital, leaping from tree to tree like a
+monkey, preventing me from launching a proper attack.
 
 <br />
-"Don't tell me a hero has appeared."
+Even with the dragon blood pill suppressing mana consumption, my mana
+was nearing its limit.
 
-"Apparently, that's 'exactly' what's happened."
-
-"...Are you joking?"
-
-<br />
-According to the rumor the princess told Aria, the "hero" arrived by
-ship in the Melrune National Federation in the north of the continent a
-few months ago.
-
-"I see, then the credibility goes up a bit, which is not good."
-
-"That's what you'd expect when you consider history."
-
-Originally, we light-skinned Mercenians did not live on this Sars
-Continent, and it is said that we arrived by ship from another continent
-in the north, along with the Holy Church.
-
-The Melrune National Federation is a federation of seven small
-countries, each claiming to be the first Mercenian nation established on
-this continent, which is why they never became one in the end. However,
-a great power established later began to gain strength, and the
-countries begrudgingly formed a federation to counter it. That is the
-Melrune National Federation.
-
-The fact that the hero arrived there means that they came from that
-other continent.
-
-The Melrune National Federation has apparently been trading with that
-continent, so maybe they came on one of those trade ships.
+I temporarily gave up on finishing off Amor, dispelled 【Iron Rose】,
+and drank a mana recovery potion I took from my pouch while chasing
+after Amor.
 
 <br />
-And, the Holy Church's forbidden book stated this.
-
-When evil appears in the world, the hero is chosen by the spirits and
-saves the world.
-
-When a crisis befalls humanity, the saintess is loved by the spirits and
-saves the people.
-
-This is apparently not a legend or a fairy tale, but a fact recorded in
-the history of the Holy Church.
-
-Both are definitely crises, so the hero and saintess are often chosen
-together, and they are often depicted together in fairy tales.
-
-So why is it a "forbidden book" that is not available to the general
-public?
-
-It is due to the existence of the "enemies" that the hero has fought.
-
-They are "demon lord-class" existences that cannot be compared to demon
-race kings... legendary evil dragons, and demons even higher than
-high-ranking demons, and the "hero" was chosen by the spirits to counter
-them.
-
-The Holy Church is hiding the fact that such threats to humanity existed
-in the past. Perhaps they spread the fairy tales of the saintess and the
-hero to dispel the people's anxiety, centering on the Holy Church, in
-case a real threat appeared.
+"..."
 
 <br />
-"But in the current situation, I don't think there's any 'evil' on this
-continent that would warrant a hero appearing?"
-
-If there really was such evil that could destroy a country, I think
-there would already be signs of it. At least, if the hero felt it on
-this continent and came here, it would have been at least a year ago, so
-it should have been caught by the dark information network, shouldn't
-it?
-
-Aria narrowed her eyes at my analysis as if she was momentarily stunned,
-and then stared at me for some reason.
-
-"...That's right."
-
-"Gaa..."
-
-"What are you trying to say?"
+I wonder if Melrose is safe... Even if I defeat Amor, there's no
+guarantee that the Undead will stop.
 
 <br />
-In the end, the matter of the hero was put on hold... or rather, we
-couldn't say anything other than we didn't know what they came to do,
-even if we speculated. In the first place, the princess can't move
-unless it involves the Claydale Kingdom, and Aria won't move either.
-
-Well, it would be nice if they just defeated something on their own and
-went home. I'm not interested either.
+If that was Amor's 【Gift】, they should stop. However, based on my
+experience meeting the two spirits in the dungeon, I didn't believe it
+was a Gift.
 
 <br />
-"More importantly... that's in the way."
-
-"Gaa."
-
-"Well, has the kitty become a complete 'kitty'?"
-
-I couldn't help but glare at the kitty, who was basically always in
-Aria's shadow, yawning on Aria's lap in phantom form.
-
-Behind me, the mountain bandits, two young women who had completely
-underestimated us and attacked, had turned into ice statues with their
-weapons still raised.
-
-I could have erased them without a trace if it was fire, but lightning
-leaves the corpses unsightly, so I had no choice but to freeze them.
-
-"Right?"
-
-"Clean it up."
-
-I have no choice... I used the application of \[Shadow Walker\] to sink
-the ice statues into the shadows of the forest, and discarded them
-somewhere out of sight.
+The same goes for Nathaniel's ability. I can't imagine being able to
+control such a demon with a Gift.
 
 <br />
-And so, we continued our monotonous journey, and arrived at the Dance
-Marquisate two weeks later. ...But where does the Samantha we're looking
-for live?
-
-"I heard that she lives in a suburban mansion in the capital city of the
-Dance Marquisate. I should have sent a letter in advance..."
-
-Just as Aria was about to say that, we saw something approaching from
-beyond the road where we could see the city in the distance, kicking up
-a cloud of dust.
-
-...Is it a monster?
-
-"――\[Ice Lance\]――"
-
-For the time being, I attack without even confirming. Aria didn't stop
-me either.
-
-However, the several \[Ice Lances\] I fired were intercepted by the same
-number of \[Ice Lances\] released from the dust cloud, and as if taking
-advantage of the gap, it jumped over us, and behind us, it revealed the
-figure of a small old woman from the dust cloud.
+If that's the case, what is that demon? Just like Elena reduced her
+attributes by wishing for healing, could there be a forced "contract"
+with a demon as a result of simply seeking power?
 
 <br />
-"Welcome, young ladies! I am Samantha Samantha!! Who might you be!?"
+Demons are likely involved in this incident as well. If Amor's power was
+granted by a demon, then the one at the center of it is... that "Saint."
 
 <br />
-I see... she is "senile."
+Melrose has likely defeated most of the Undead with a will of their own,
+so they should be fine if they use tactics well.
+
+<br />
+Praying for the safety of the people I left with Melrose, I trusted them
+and ran across the ground, chasing after Amor who was heading towards
+the royal capital.
+
+<br />
+\*\*\*
+
+<br />
+"Aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaah!!"
+
+<br />
+Amor ran across the ground, letting out an irrational scream from the
+left half of his face, which had lost its reason.
+
+<br />
+His words and actions were already far from human, and his figure,
+mowing down the trees leading to the royal capital as he advanced, felt
+like he had become a "monster" in both body and mind.
+
+<br />
+Behind Amor, who was running through the forest at several times the
+speed of a human, Karla flew in the night sky.
+
+<br />
+With Karla's attack power, she should be able to stop him with rock
+bullets or ice spears. If she got serious, she could probably burn the
+forest to the ground.
+
+<br />
+"Fufu..."
+
+<br />
+However, Karla did not attempt to intervene, maintaining a faint smile.
+
+<br />
+Karla also has weaknesses. The fragility of her body is like that of a
+sick person, and she forcibly extends her life by forcefully healing
+herself with light magic, but that only postpones "death."
+
+<br />
+Karla's weakness now is that she can't overuse her 【Gift】 to maintain
+her life, but in the current situation, it seemed as if she was letting
+Amor run free for some purpose.
+
+<br />
+Amor escaping and Karla chasing him.
+
+<br />
+The closer they get to the royal capital, the higher the probability of
+encountering people. Even at night, a large amount of goods are being
+transported into the royal capital, and merchants are traveling back and
+forth.
+
+<br />
+Even so, they were fortunate that they didn't encounter any people in
+Amor's path, but instead, Amor, who jumped out of the forest and onto
+the highway, encountered the First Knight Order, which had departed from
+the royal capital towards Dandorle.
+
+<br />
+"What is this monster!"
+
+"All troops, prepare to intercept!"
+
+<br />
+Faced with the sudden appearance of the grotesque figure, some of the
+three hundred knights of the First Knight Order, unable to recognize it
+as Amor, took up defensive positions.
+
+<br />
+"Don't get in my wayyy!!"
+
+<br />
+Amor, transformed into a giant, blew away the First Knight Order's
+cavalry along with their horses.
+
+<br />
+Several cavalrymen were incapacitated by the attack, but fortunately,
+most of the insects that scattered from the blow had died due to Amor's
+magic stone shattering.
+
+<br />
+The insects, which had barely survived because they were connected to
+Amor, turned into black dust and disappeared after being separated from
+him.
+
+<br />
+"Engage!"
+
+<br />
+While the other knight orders mainly guarded the royal capital, the
+First Knight Order was equipped and trained to take on offensive roles.
+It was an effective tactic for them to immediately take up thrusting
+spears without fear upon seeing Amor's figure, but the problem was that
+the "monster" was beyond their expectations.
+
+<br />
+"Gaaaaaaaaaaaaaaaaaaaaaaaaaaaah!"
+
+<br />
+Multiple spears pierced Amor's insect body. However, Amor, letting out a
+shriek, entangled the spearheads with his insect body and blew away
+several knights with his powerful arms.
+
+<br />
+"That's blasphemyyy!!"
+
+<br />
+Several knights stopped moving at the "voice" shouted from Amor's mouth.
+
+<br />
+These knights were high-ranking knights who knew that the mastermind
+behind this rebellion was the "Prince," and they knew his appearance and
+voice.
+
+<br />
+The knights' movements became sluggish as they realized that the
+grotesque monster was once a "human," and they became victims of the
+rampaging Amor.
+
+<br />
+But at that moment—
+
+<br />
+"——【Lightning】——"
+
+<br />
+\*Doooooooom!!\*
+
+<br />
+A lightning bolt that fell from the night sky with a roar struck Amor,
+also mowing down the surrounding knights.
+
+<br />
+The 【Lightning】 spell travels in a straight line and is a magic that
+is difficult to affect the surroundings. The knights who were blown away
+by the aftereffects groaned in pain but recognized the black-haired girl
+floating in the sky, and their faces twitched.
+
+<br />
+The Thorn Witch... Karla Leicester.
+
+<br />
+Many have witnessed her fighting demons in the royal palace and royal
+capital, and many of their colleagues have been caught up in the battle
+and lost their lives, and her existence was known with fear.
+
+<br />
+Seeing the area around Karla electrifying and dark clouds gathering in
+the starry sky, several knights let out inaudible screams as if they had
+encountered a "Demon King" from a fairy tale.
+
+<br />
+"Gaaaaaaaaaaaaaaaaaaaaaaaaaaah!?"
+
+<br />
+The lightning bolt released again struck Amor, blowing away several
+knights who were too late to escape.
+
+<br />
+"M-Miss Leicester, what are you doing!"
+
+<br />
+A knight, likely the captain, shouted at Karla, but she did not change
+her expression in the face of the criticism, and opened her mouth with
+slight annoyance.
+
+<br />
+"Are you still here? Go to the Dandorle mansion quickly. If you stay
+here..."
+
+<br />
+Karla changed only her lips into the shape of a smile, as if speaking to
+the knights and Amor.
+
+<br />
+"...you'll die."
+
+<br />
+Everyone in that place took a step back without realizing it, feeling an
+unusual "demonic aura" emanating from the girl who was not yet an adult.
+
+<br />
+However, that unknightly, instinctive fear saved their lives.
+
+<br />
+"Aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaah!!"
+
+<br />
+Perhaps it was the harm from leaning towards a monster, or perhaps it
+was the insects' instinctive "fear," the insects eroded and devoured the
+human face that remained on Amor, and Amor's body, having lost his mind
+again, began running in the direction of the royal capital.
+
+<br />
+Karla, raising the corners of her lips, chased after him. The knights of
+the First Knight Order could only watch in astonishment as those who had
+passed through like a storm caused damage.
+
+<br />
+\*\*\*
+
+<br />
+"Oooooooooooooooooooooooooooooooh!!"
+
+<br />
+Amor, letting out a scream, reached the outer walls of the royal
+capital.
+
+<br />
+The countless short arrows and discolored parts on his back were the
+result of my struggles, but the arrows had no effect, and the poison
+only killed the insects on the surface.
+
+<br />
+The Amor's flesh that was there at first, leaving only the right half of
+his face, is no longer there...
+
+<br />
+Neither poison nor slashes will work on that anymore. The only way to
+defeat it is to crush it with overwhelming power. Can my illusory magic
+do that?
+
+<br />
+If he stops for even a few seconds, there is a chance. The moment he
+reaches the outer wall, whether he climbs or destroys it, he will have a
+few seconds.
+
+<br />
+But—
+
+<br />
+"Kyaaaaaaaaaaaaaah!?"
+
+<br />
+A scream was heard from the outer wall. I put strength into my fatigued
+legs to increase my speed, and there was a civilian there.
+
+<br />
+"Civilians on the outer perimeter in a place like this!"
+
+<br />
+Even though it is the royal capital, not everyone lives inside the
+walls. There are hundreds of people, including guards who manage simple
+lodgings and shops for those who cannot afford a house in the royal
+capital or for individual merchants who could not reach the gate before
+closing time, who have created a settlement-like structure in front of
+the castle gate.
+
+<br />
+However, that is near the gate, and I didn't think there would be people
+so far away from it.
+
+<br />
+The screams of people. Amor, who started climbing the outer wall, and
+disoriented, almost naked men and women found me and clung to me as if
+seeking help.
+
+<br />
+I dodged them with footwork and stepped over the face of a large man who
+appeared to be an adventurer to leap over him, but at that time, Amor
+was already about to finish climbing the outer wall.
+
+<br />
+"——【Levitate】——"
+
+<br />
+Instead of climbing the wall, I used levitation to jump over the
+ten-meter outer wall in one go.
+
+<br />
+The difference in the means of jumping over that wall closed the
+distance with Amor.
+
+<br />
+"——【Pain】——"
+
+<br />
+Amor stopped moving for a moment due to the 【Pain】 I released. The
+【Pain】 is already losing its effectiveness. But in that moment, the
+pendulum-shaped weight I threw shattered the back of Amor's head, but
+only insect corpses scattered, and Amor continued running as he was.
+
+<br />
+That direction is... the Holy Church's temple.
+
+<br />
+"——【Iron Rose】——"
+
+<br />
+My pinkish-gold hair turned into an ash-gray color like scorched iron,
+and I spread particles of light like wings. While drawing a comet of
+light, I chopped off Amor's arm from behind and crushed it along with
+the insects, as if engulfing it in particles of light.
+
+<br />
+"——!?"
+
+<br />
+However, that arm regenerated in an instant, and I was blown away by the
+new arm that was swung around, smashing through the doors of a closed
+shop.
+
+<br />
+Amor's regeneration power is increasing? What's in the royal capital? I
+jumped out of the destroyed store, put a dragon blood pill in my mouth,
+and continued to chase after Amor.
+
+<br />
+The distance had widened. I jumped onto the roof, using the screams of
+the people who had finally noticed the appearance of the monster as a
+landmark, and I could see Amor's back jumping across the rooftops.
+
+<br />
+However, in my eyes as I was about to chase after him, I saw a huge fire
+aether rising from afar.
+
+<br />
+\*Boom!!\*
+
+<br />
+Flames like a dragon's breath flew in and killed a large number of
+insects, grazing Amor.
+
+<br />
+"Guooooooooh! Come, my other half!"
+
+<br />
+As he was burned by the flames, Amor let out a scream, and from the same
+direction the flames came from, a giant insect of the same appearance as
+Amor, scorched, ran across the roof.
+
+<br />
+Other half? Could it be that the reason he only had half a body was
+because he was split in two?
+
+<br />
+If my Amor's regeneration power increased by getting close to that one,
+then I must not let them get close.
+
+<br />
+I allocated the Iron Rose's body enhancement to speed, readied my knife,
+and instantly approached Amor's back.
+
+<br />
+"——!?"
+
+<br />
+But at that moment, a lightning bolt flew in, and in my eyes, as I
+barely dodged it, I saw black hair fluttering and waving even higher in
+the sky.
+
+<br />
+"Karla!"
+
+"Fufu"
+
+<br />
+Why is Karla here? Did that Amor run away from her? Karla, who was
+blocking me, stood in my way in the night sky.
+
+<br />
+"Why are you interfering?"
+
+"You're the one interfering."
+
+<br />
+Karla simply replied to my question.
+
+<br />
+"——【Reality Breaker】——"
+
+"——【Soul Thorn】——"
+
+<br />
+Particles of light and darkness mixed together from my entire body, and
+silver wings fluttered.
+
+<br />
+Black thorns entangled Karla's entire body, and a vast amount of mana
+overflowed.
+
+<br />
+\*Goooooooom!!\*
+
+<br />
+Karla interrupted me as I tried to chase after Amor, and the royal
+capital resounded with a boom and shockwave like heavy iron clashing
+against iron in a clash exceeding a combat power of 5000.
+
+<br />
+Multiple lightning bolts released by Karla slipped through my body.
+
+<br />
+Karla deflected the countless blades of illusion that I released with
+thorns that dyed her entire body black.
+
+<br />
+Is this your wish... Karla!
+
+<br />
+"——【Fire Storm】——!"
+
+"——【Dancing Reaper】——!"
+
+<br />
+I cut through Karla's exploding flames by layering technique upon
+technique, and blood spurted from my overstrained right arm.
+
+<br />
+"But I don't care!"
+
+<br />
+I threw the dagger in my still-slightly-moving left hand into the air,
+entangled it with my foot, and kicked Karla in the face with the sole of
+my shoe.
+
+<br />
+\*Gooooooooon!!\*
+
+<br />
+Once again, a roar echoed in the sky above the royal capital, and the
+shock of mana blew away the surrounding roof tiles.
+
+<br />
+"Gah..."
+
+<br />
+Karla retreated while spitting blood from her mouth after taking the
+dagger with her foot. But Karla's fingertips moved slightly, and
+lightning was fired from there.
+
+<br />
+Can I dodge at this timing? Just as I was about to jump out at the cost
+of taking damage, an "electric shock" released from the darkness
+collided with the lightning, and a black giant intercepted the lightning
+as if protecting me.
+
+<br />
+"Nero!?"
+
+"Gaaaaaa!"
+
+<br />
+Why is Nero here? But before I could think about that, the roar of a
+"monster" could be heard from the direction of the temple.
+
+<br />
+"Uoooooooooooooooooooooooooooooooooooooooooooooh!!"
+
+<br />
+The two Amors merged, and the only remaining right half of Amor's face
+floated an expression of terror and ecstasy. It was turned towards me
+with bloody tears as if seeking help for a moment, and then disappeared
+as if swallowed by the insects.
+
+<br />
+The giant body of insects grew larger and larger... the giant body,
+exceeding twenty meters, roared directly above the temple, and perhaps
+because its ominous figure was reminiscent of a demon, the screams of
+the residents who had experienced that terror many times reached even
+here.
+
+<br />
+No... that's not a scream.
+
+<br />
+"What is that..."
+
+<br />
+Not just the surrounding residents. Residents, likely having gathered
+from all over in their sleepwear, were raising their voices around the
+temple.
+
+<br />
+At the center of them was that woman—the "Saint."
+
+<br />
+"Everyone, God is testing our faith! Now, pray to God!"
+
+"Pray to God!"
+
+<br />
+The voices of the people merged with the Saint's "words" and "figure."
+My consciousness momentarily strayed at the sight of the residents, as
+if they were being manipulated by someone, praying to the Saint and
+Amor.
+
+<br />
+"Well, see you later, Aria. It was fun."
+
+"Karla!"
+
+<br />
+Seeing that, Karla, who was still alive, smiled kindly with a
+blood-stained face and headed towards Amor.
+
+"Nero!"
+
+--Yes--
+
+<br />
+Nero, who understood in an instant, took me on his back and chased after
+Karla.
+
+<br />
+But our movements were a moment too late, and Karla, who had reached the
+sky above the temple, pointed her fingertips towards Amor and its
+surroundings with a smile more demonic than a demon.
+
+<br />
+"——Stop!"
+
+<br />
+My voice resounded in the sky, and Karla's voice spilled into the night
+as if matching it.
+
+<br />
+"——【Freeze】——"
+
+<br />
+A giant wave of cold air was released, dyeing the completely monstrous
+Amor white.
+
+<br />
+The aftereffects froze even the nearby residents, who collapsed and
+shattered.
+
+"Karla... is this what you wanted to do?"
+
+<br />
+As I glared in the midst of a hellish scene, Karla wiped the blood from
+her half-frozen mouth and turned to face me.
+
+<br />
+"Yes. My business is done. However, it seems like even that was used by
+'that one'."
+
+"..."
+
+<br />
+Karla's wish is to defeat Amor in the royal capital?
+
+<br />
+Saint Alicia used that as material for incitement?
+
+<br />
+What are the two of them thinking?
+
+<br />
+The Saint's wish is to instill fear in the people and crush Elena's
+plan...
+
+<br />
+Even if it was an emotion implanted by a demon, the people will further
+worship the Saint, and for that, she even discarded Amor, who was once
+her comrade.
+
+<br />
+But Karla... what is your real "wish"...?
+
+<br />
+Karla disappeared somewhere with space-time teleportation, and as I
+looked at the Saint, who was praying with the people with hair and robe
+half-frozen, I could not help but feel that the victors were them.
+
+
 
 
 ---

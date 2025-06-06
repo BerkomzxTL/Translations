@@ -2,235 +2,412 @@
 
 
 
-# 290 Dragon Hunting Grounds
+# 258 Graduation Event "Passion"
 
-"......Snow?"
+"Mikhail-sama... Aria is—!"
 
-"Yes, I'm alright."
+"Calm down, Theo."
 
-Aria called out to me with a questioning face, as I had been staring at
-the direction the Fire Dragon had flown off to.
+From a corner of the damaged royal castle, the young men watch Aria's
+battle.
 
-In truth, I was captivated by the Fire Dragon. Certainly, its crimson
-scales and the way it spread its wings as it soared were beautiful
-enough to inspire awe, but that wasn't it.
+Theo, as Mikhail's aide in the combat division of the shadows, was
+working behind the scenes to deal with the disputes that would
+inevitably arise at the graduation party.
 
-I was captivated by the Fire Dragon's gushing fire attribute aether, the
-powerful energy that seemed to obliterate everything...that I had lost.
-
-Fufu. Do I still harbor destructive impulses within me? Or was I just
-nostalgic?
-
-However, it's certain that there's someone I want to destroy.
+Therefore, having prioritized the evacuation of the invited guests,
+Theo, who could not participate in the battle at the venue, could only
+watch Aria's battle from afar with the same frustrating feelings as
+Mikhail, who also remained behind the scenes.
 
 <br />
-After that, we returned to the carriage and reported to Dalton and the
-others. Well, Aria did the reporting, but the discussion was about the
-Hero's party's fighting strength. The Hero Klein, whose combat ability
-is still unknown. The heavy warrior Douglas and the swordsman Neidhardt.
-
-"So, is the Hero's party likely to be able to defeat an attribute
-dragon?"
-
-"Probably, I think there won't be any problems."
-
-Aria nodded, though after a moment's hesitation, to Feld's question.
-
-It's still troublesome that we don't know their combat abilities.
-They're only guidelines, after all, and their true strength won't be
-known until we see them in battle, but they're easy-to-understand
-indicators. Still, perhaps because she sensed something, Aria thought
-that the heroes would be able to hunt attribute dragons without any
-problems.
-
-<br />
-The Fire Dragon was probably over rank 7. I've heard that even the Dark
-Dragon that Aria and the others fought to the death to defeat was only
-just reaching rank 7 and only won because it didn't fly into the sky due
-to its hatred of humans.
-
-Aria and I, with Kitty, defeated a rank 7 Chimera, but it had almost no
-combat experience, and it was essentially unintelligent.
-
-But the Fire Dragon is different. It has spent many years as an
-attribute dragon and is intelligent.
-
-No one on this continent would try to take it on. There might have been
-some, but they're probably dead.
-
-<br />
-"Then we'll proceed with caution. In many ways."
-
-After discussing it for about fifteen minutes, just as the Hero's party
-and the Temple Knights were about to depart, Dalton called out to us to
-get the carriage moving.
-
-Caution is necessary. Truly in "many ways"...
-
-Because we don't know what choices those three will make.
-
-<br />
-After that, we passed through almost without incident into the Kingdom
-of Zentol, the country nearest to the "Dragon Hunting Ground". It was
-"without incident" because no one came to greet the Hero as he entered
-the country. Apparently, the Hero disliked the hassle, so he
-deliberately didn't contact the Kingdom of Zentol.
-
-If the Kingdom of Zentol knew that the Holy Church's Hero was coming,
-they would have welcomed him with great fanfare and held a ball.
-
-And if they knew that the Hero had come to exterminate the Fire Dragon,
-they might have dispatched their own forces to steal the credit and
-declare the "Dragon Hunting Ground" to be under their occupation.
-
-<br />
-The Kingdom of Zentol wants fertile grasslands that much. Even before we
-entered the country, the flat roads were becoming fewer, and although
-there were many forests, there were clearly few plains suitable for
-farming or ranching.
-
-If that's the case, they should have focused on specialty products that
-can grow even in such land, but what they chose was plunder through
-conflict.
-
-"Well, that's none of my concern."
-
-"That's right."
-
-"Aren't you guys taking this too lightly?"
-
-Jesha, who had switched places with Feld as the driver, gave Aria and me
-a look of amazement.
-
-It's fine. To me, everyone except Aria is truly unimportant.
-
-<br />
-"The Hero seems to be heading straight for the 'Dragon Hunting Ground'."
-
-The Temple Knight Vincent appeared while we were taking lodging and
-eating a meal at a post town along the way, and told us so. Of course,
-the Hero and the others have separate lodging. Too much of a hassle.
-
-Even so... Vincent. Isn't this person a big shot in the Holy Church? Why
-is he doing something like running errands?
-
-Well, he himself seems reluctant and displeased. He must be serious at
-heart.
-
-I liked this flat-baked buckwheat, so I wasn't paying much attention to
-what he was saying.
-
-<br />
-Vincent doesn't think much of the Hero. More precisely, he respects the
-title of "Hero", but he doesn't like that "Klein" is the one who bears
-the name.
-
-As long as Klein has the backing of the Holy Church, Klein shouldn't be
-able to take any strange actions while Vincent is watching... but
-Klein's principles are so different from ours that it's impossible to
-predict what he'll do.
-
-Vincent seems to want to say something to us, but I don't understand
-what religious people are thinking.
-
-<br />
-Several days later, we passed almost straight through the Kingdom of
-Zentol and headed for the great grassland "Dragon Hunting Ground", where
-the Fire Dragon is said to reside.
-
-It takes more than ten days from the Kingdom of Zentol. There are no
-decent roads in the grassland, and the carriage moved slowly. It was
-very troublesome, but we don't mind simple meals, and it might be better
-than the Temple Knights since we can sleep in the carriage.
-
-"Snow."
-
-"Not yet."
-
-There's no way I can easily use light magic 【Purify (Clean)】 for
-toilet magic.
-
-Still, we're better off. But apart from the carefree Hero Klein, the
-Hero's companions... especially the swordsman Neidhardt, who seems to be
-from a noble family, seemed irritated by this pointless journey.
-
-<br />
-"Klein, let's get this over with quickly!"
-
-"Isn't it bad to rush too much?"
-
-"Shut up, let's go!"
-
-As soon as they reached their destination, Neidhardt finished his
-preparations alone and urged the others around him. Klein shrugged at
-him and looked at the warrior Douglas for agreement, but he remained
-silent and sullen.
-
-Even though it's called a destination, it's not like we're standing in
-the middle of a grassland.
-
-The Fire Dragon's habitat is said to be on Mount Curios, and the Fire
-Dragon uses this rocky area as a temporary home only when it hunts large
-prey.
-
-If we stay here for a few days, the Fire Dragon is sure to appear... or
-so it should.
-
-"It's there."
-
-"Yeah."
-
-The air around the rocky mountain was different. I heard that there were
-wyverns besides the Fire Dragon, but they weren't to be seen.
-
-As if they were in awe of some mighty existence...
-
-Just as everyone was preparing on foot, Klein said something out of the
-blue.
-
-<br />
-"Well then, we'll go forward, but Aria-san. I'd like you to move to our
-party."
-
-Aria frowned at those words, and even Neidhardt turned around.
-
-"Klein! Are you really going to make that woman a companion?"
-
-"That's what I intended from the start?"
-
-"I haven't agreed to it."
-
-When Aria calmly interrupted Neidhardt and Klein, who had started
-arguing, Klein smiled and narrowed his eyes.
-
-"This time, I just want you to prove that you can actually fight the
-Dragon. If you don't have a certain level of power, you'll be burned to
-a crisp by the Dragon's breath, but are you still going to put your
-companions in front of you?"
-
 "............"
 
-<br />
-Dalton and the others aren't weak. But if they were hit by a breath
-attack on a rocky mountain with no escape, there's a chance that
-everyone except the heavily armored Dalton would die. It's true that if
-strong people go forward, the people behind them will be safer, but this
-is like taking hostages.
+Not only that, Theo felt a sense of regret about that girl, who he had
+been by her side as a guard for a short period.
 
-Aria probably can't refuse. That's why --
+The members of the royal family, including Mikhail, saw Licia only as an
+enemy. Theo certainly thought so too, but having accidentally witnessed
+the last scene between her and Aria, Theo prays for her soul because he
+knows her.
 
-"Then can I participate too?"
-
-Klein's smile deepened when I stepped forward and said that.
-
-"...Yes. I was going to invite you anyway."
+Although she was a troublesome and bothersome "enemy," Theo knew that
+she was not a bad person.
 
 <br />
-I knew that he wouldn't refuse my participation since that battle in the
-forest.
+"Theo, don't let your mind wander. While Aria... Alicia is fighting, our
+role is to protect what she is trying to protect."
 
-Aria was looking at me with a complicated expression, but I'm sorry,
-Aria. ...I hate being manipulated by someone else's intentions.
+"...Yes."
+
+While scolding Theo for worrying about Aria, Mikhail was overwhelmed by
+his own powerlessness.
+
+Theo admires Aria. Mikhail feels the same, but his feelings are also
+akin to admiration and worship. He understands his role in this
+situation and remains behind the scenes, but that is because Mikhail
+could not stand beside Aria in this battle.
+
+Aria's existence will have a significant impact as a result of this
+incident.
+
+Princess Elena, who stood as the new Crown Princess through her own
+ability.
+
+Karla, the most formidable magician who surpasses even Aria in combat
+power.
+
+And Saint Licia, who plunged the kingdom into chaos.
+
+In this situation, only these three were able to stand in a position
+equal to Aria. Regardless of how this ends, Mikhail darkened his
+expression, wondering if he could protect Aria from domestic and
+international interference.
+
+(Even so... I...)
+
+<br />
+   ＊＊＊
+
+<br />
+Amidst the lightning that enveloped everything around me in a flash, the
+silver light that I unleashed into the sky with all my might tore
+through the lightning.
+
+DODOOOOOOOOOOOOOOOOOOOOOOOOOOOOOM!!
+
+A deafening roar, as if a giant thunderbolt had struck, resounded, and
+amidst the shock that blew away everything around me without a trace, I
+mustered even more strength.
+
+BIKIIN――――…………
+
+<br />
+In the clash of forces on an impossible scale, I heard a cracking sound
+coming from the black knife and dagger that I held up with both hands.
+
+As the clear metallic sound faded away, the lightning also ended, and
+Karla's figure, bleeding from the mouth, appeared in the night sky where
+the dark clouds had been torn apart.
+
+Karla's blood-stained lips curved into a faint smile. I closed my mouth,
+as if hiding my clenched jaw.
+
+Our battle is not over.
+
+<br />
+GOOOOOOOOOOOOOOOOOOOOOOOOOOM!!
+
+At that moment, Karla, falling straight down, and I, leaping into the
+sky, collided, and a sound like striking a giant bell resounded.
+
+Karla can no longer use large-scale magic. Not because of mana issues,
+but because Karla's body shouldn't be able to withstand it.
+
+The same goes for me. The damage I took was severe, and my whole body
+was screaming with every movement.
+
+<br />
+I threw away the two cracked weapons and struck Karla's face with the
+gauntlet filled with iron sand that I had gripped.
+
+After all, no proper blade would get through. Karla, without being
+intimidated by this, punched my face with a fist covered in black
+thorns.
+
+GOOON—GOOON—!
+
+Heavy metallic sounds, unimaginable for a bare-handed brawl, struck my
+ears. With each collision, Karla's mana and silver light scattered, and
+intense shockwaves shook even the night sky.
+
+GOOON!!
+
+We collided at speeds invisible to the eye, and Karla's kick was met by
+my kick.
+
+The Rank 10 body enhancement from the Iron Rose effect carved into the
+earth with every step. In response, Karla used the black thorns wrapped
+around her entire body to approach me with speed and power.
+
+"Haaaa!!"
+
+"Ahaha!!"
+
+With a single step, we flew across distances of more than ten meters,
+and each blow unleashed sent us flying dozens of meters.
+
+We clashed in an entangled manner, changing locations with high-speed
+movements, and smashing through buildings that were still intact while
+exchanging blows.
+
+<br />
+GOOON!
+
+Karla's elbow strike hit my face, and the impact loosened my tied-up
+hair. While reeling back, I grabbed Karla's arm, and with my hair
+fluttering, I headbutted Karla's face.
+
+GOOOOOOOON!!
+
+"――――tsu!"
+
+And stared at each other from point-blank range as if glaring――
+
+"Get more serious."
+
+"Don't be absurd."
+
+BACHIIN!
+
+Karla's mana and silver particles exploded, pushing our bodies apart by
+a slight distance. In an instant, our fists collided again, scattering
+intense sparks.
+
+The bones in our fists creaked, and blood flowed from our fists, which
+had finally broken through each other's defenses.
+
+<br />
+"Haa!!"
+
+Spreading silver particles like wings, I shot out like a cannonball and
+slammed into Karla's body with my shoulder, sending her flying.
+
+I chased after Karla, who flew away while spitting out blood, and Karla
+forcibly changed her posture, performing a somersault to kick me with
+her mithril stiletto heel.
+
+I received it with my heel at the last moment, grabbed Karla's leg, and
+slammed her into a stone building while swinging her around. Within the
+building that had begun to collapse from the impact, Karla's leg was
+entangled with the thorns on my arm, and she slammed me into the
+building as if kicking me.
+
+While exchanging kicks and punches amidst the collapsing walls and
+ceiling, we simultaneously kicked the floor to pieces and leaped up. We
+broke through the ceiling of the collapsing building and soared into the
+sky, and as Karla swung her arm, a vast amount of mana became a physical
+shockwave that raged.
+
+"――tsu"
+
+I, wrapped in silver light, floated in the air without resisting the
+impact. But at that moment, Karla, spewing out mana and approaching,
+sent me flying like a giant iron ball.
+
+"Gofuu"
+
+My body creaked, and blood seeped into my mouth. But in that instant, I
+grabbed Karla's body and kicked it while smashing it into some building.
+
+<br />
+DOGOOOOOOOOOM!!
+
+The battlefield shifted from the surroundings of the destroyed temple to
+the noble district.
+
+The silver light and Karla's mana stirred up the furnishings of the
+evacuated noble residences. Karla threw a giant stone table, and I
+shattered it with a kick, sending the scattering giant fragments flying
+toward Karla.
+
+"Fu!"
+
+Karla breathed out, caught them with the hem of her dress, and shattered
+them with her knee.
+
+In that instant, I leaped up, kicked off the ceiling, and delivered a
+heel kick to the top of Karla's head.
+
+GOON!
+
+Karla blocked it by crossing her arms, grabbed my leg, and slammed it
+into the stone floor. Then, she slammed it into the ceiling as well and
+blew me away with a mana shockwave as if crushing me.
+
+"Haa!"
+
+In the instant when my line of sight was cut off, I slipped through the
+shockwave with silver light, erased my presence, and kicked through the
+stone floor of the second floor. Then, blending in with the dust, I
+kicked Karla in the back, blew her through the plaster wall, and sent
+her flying.
+
+<br />
+"tsu!"
+
+I wrapped silver light around my arm and fired it there. But at that
+moment, Karla fired mana and shockwaves from her entire body, blowing
+away the dust along with the rubble and collapsing the building.
+
+Dodging the scattering fragments and jumping in, I unleashed a jumping
+kick with silver light at full power, like a storm.
+
+"HAAAAAAA!!"
+
+The barrage of kicks filled with spirit blew Karla away, and she charged
+through multiple noble residences beyond. But Karla forcefully stopped
+her charge by driving black thorns into the surroundings, and countered
+by striking my face with a knee kick.
+
+GOOON!!
+
+<br />
+Even if slashes don't get through, strikes become shock and damage
+accumulates.
+
+Our attacks were penetrating each other's defenses more often, and Karla
+was laughing while spitting out blood mixed with saliva, as was I.
+
+"More, more, Aria!! I can't be killed otherwise!"
+
+We traded blows, traded kicks, and now we were just punching each other
+without even defending.
+
+With every blow Karla landed on me, her heart was conveyed...
+
+My heart should have been conveyed as well.
+
+"...Then, why are you crying?"
+
+<br />
+Karla was crying while laughing. To me, that figure looked like an
+infant hitting me while crying.
+
+We became adults. But that was only through growing with mana, and we
+who had only forcibly gained adult knowledge were nothing more than
+helpless children crying out for parental love.
+
+We are children who could no longer be children. Children who had given
+up on being children, Elena and... surely Licia too.
+
+To resist fate, I chose to fight to survive... Karla chose to fight for
+revenge, I fight to live, and Karla fights to die.
+
+That is why we exchange blows.
+
+In this world where we can only see each other, we exchange blows while
+crying like young children.
+
+<br />
+"Kill me, Aria!!"
+
+Karla's bloodstained fist, laughing and crying as she shouted, struck my
+cheek.
+
+"Won't you die with me...?"
+
+That fist was the most... painful one so far.
+
+I punched back with my own bloodstained fist, and Karla smiled sadly as
+she was blown away.
+
+"You're so mean..."
+
+<br />
+Leaping onto the roof of the collapsing noble residence, Karla, spewing
+mana and leaping in, kicked me in the stomach.
+
+"What do you want me to do?"
+
+My elbow, wrapping in silver light and leaping in, struck Karla's
+forehead.
+
+"This is all I had left."
+
+Karla, wrapping black thorns around my leaping body, slammed me into the
+ground as if throwing me.
+
+"I couldn't show that I was alive in any other way!"
+
+Forcibly bending my legs from the ground where I had been slammed, I
+pulled Karla closer, and then kicked through Karla's face.
+
+"If I live, more people will die..."
+
+Karla spat out bloodstained saliva and gently raised her right hand to
+the sky... and in that night sky, flames rising to the sky from six
+directions of the royal capital were gradually gathering.
+
+<br />
+"...【God's Wrath (Megiddo)】... God's wrath for the forbidden act of
+piling matter upon matter... if this magic explodes, the royal capital
+will be erased."
+
+<br />
+The moment those flames gather above the royal capital and Karla utters
+the activation word, Rank 8 fire magic will scorch the royal capital.
+
+The only way to stop it is to kill Karla.
+
+Karla seeks "death" to that extent.
+
+You can understand if you take Karla's power. It's not just magic. Body
+enhancement, thought acceleration, and all the resistances she has
+acquired are the result of constantly being targeted for her life in
+order to fulfill her revenge.
+
+And no one can leave the "most formidable" who has gained the
+"strongest" power and fulfilled her revenge alone, and the earth will be
+stained with the blood of all living things until Karla breathes her
+last.
+
+That is why Karla craved "death" so madly.
+
+Not by the hands of those who say she is not right, but by "my"
+hands....
+
+"...You idiot."
+
+Karla's attention wandered for a moment at my mutter, and my knee,
+shattering the earth as I leaped out, pierced Karla's defense and
+shattered several of her ribs.
+
+"I! Said I'd kill you!!"
+
+<br />
+Even if I didn't do this, I would have killed you anytime if you went
+berserk.
+
+Even if it cost me my life....
+
+<br />
+"Can't you trust me that much!"
+
+As if layering combat techniques on the Iron Rose, which is a combat
+technique, I unleashed the 【Dancing Ripper】 of more than eight
+consecutive strikes using my bare hands and legs.
+
+Karla's entire body was battered by the hand swords and kicks. Unable to
+withstand that power, my left arm broke, and blood gushed out from my
+entire body.
+
+Karla, too, had several bones broken and spat out blood as she was blown
+away.
+
+But Karla didn't stop. She gave me a small smile with a tearful face,
+and manipulated her tattered body with thorns, and thrust all the black
+thorns from her entire body together like a spear.
+
+<br />
+There is no way for me, who used a reckless combat technique, to defend
+against it now. But my bloodstained right hand moved slightly and used
+that from the bottom of 【Shadow Storage】 to tear apart the thorn
+spear.
+
+Karla's eyes widened.
+
+In those deep purple eyes, she sees the figure of me, holding a small
+"golden dagger" and leaping in.
+
+Karla...
+
+"You will die here today."
+
+<br />
+We intertwined as if colliding, were slammed to the ground, and I,
+straddling Karla, swung the golden dagger down toward Karla's heart.
+
 
 
 ---

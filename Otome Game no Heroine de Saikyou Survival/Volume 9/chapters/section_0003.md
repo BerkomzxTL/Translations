@@ -2,292 +2,415 @@
 
 
 
-# 263 Departure
+# 231 Reinforcements Part 1
 
-"Dungeon?"
+The runaway actions of Prince Amor, who understood the Saint's
+intentions... All that could be gleaned from what the dead Temple Knight
+had said was that, and it was unclear what he was trying to do with the
+undead.
 
-I thought I misheard, but Aria seems to be seriously planning to head to
-a dungeon. And she's taking me with her.
+...This is more troublesome than I thought. That fake "Saint."
 
-"I'm still recovering from being sick, you know?"
-
-"You're doing better than before, aren't you?"
-
-Well, it's certainly easier than when I had all the attributes. I wasn't
-aware of it myself, but according to Aria, I'm eating more too.
-
-How awful... what if I get fat?
-
-The color of my skin has improved a lot as well, and while it's a small
-price to pay for having only one attribute at rank 5, I should be
-grateful.
+Just as I felt when I met her directly, perhaps she should be killed
+before she does anything more. But doing so would suppress the confusion
+and discord among the people who believe in the Holy Church and the
+Saint, and would interfere with Elena, who is trying to secure evidence
+and condemn her.
 
 <br />
-"What's the reason for going to the dungeon?"
+Similarly, it is difficult to easily hold Prince Amor accountable for
+his crimes, but this time he has crossed a line that cannot be forgiven,
+rebellion, so it should be possible to create evidence later.
 
-And I ask the most important question. I have a vague idea, but Aria
-nonchalantly puts such an outrageous thought into words.
+For better or worse, that Prince does not have as much influence as the
+Saint. Even so, in order to entrust his subjugation to the Knights, it
+is necessary to gather evidence. If I take too much time for that, there
+is a possibility that Amor will achieve his goal. ...But.
 
-"To receive the dungeon's blessing (Gift)."
+"That's why I'm here."
 
-"...Are you serious?"
+Prince Amor will be killed.
 
-I didn't think it was possible, but she's considering conquering a
-dungeon with just us...
-
-"It's not just the two of us. Nero's coming too."
-
-"Oh, is that so?"
-
-As if responding to Aria's words, a growl could be heard from her
-shadow.
-
-Even so, it's still reckless. I've challenged dungeons since I was a
-child, but there's a limit to what I can do alone, and I've only been
-able to conquer them partway.
-
-Well, I suppose it can't be helped. I'll accompany you until you're
-satisfied.
+It seems reckless to challenge hundreds of undead enemies alone,
+something that cannot be entrusted to the shadows or the Knights, but if
+Prince Amor is assassinated, the Knights' rampage should be minimized.
 
 <br />
-When I went to say goodbye to Cerejura, who had always taken care of me,
-she waved her hand dismissively as she sent me off.
+"Gaa..."
 
-"I'm old now, so I'm not thinking about reducing my attributes anymore,
-but if it doesn't work out, don't be reckless, tuck your tail between
-your legs and run back home... you utterly hopeless disciple."
+"Sorry, Nero. I wasn't alone."
 
-"...Yes. I'll do that."
+I lightly stroked Nero's nose, which was rubbing against me in
+dissatisfaction, climbed onto his back, and first headed for the Second
+Knight Order's training grounds, which were said to be near the royal
+capital.
 
-Everyone's so kind.
+"Let's go."
 
-<br />
-And so, I ended up leaving the forest with Aria and the kitty.
-
-We headed to the town in the Seires Baron territory through the forest.
-The reason why not only me but even Aria was hiding her face with a hood
-was that there might be acquaintances.
-
-If that's the case, wouldn't it be better not to stop by the town? I
-thought, but I was told that Aria was planning to arrange a carriage,
-considering my health.
-
-"You still look pale. I'll be in trouble if you don't get into better
-shape before we reach the dungeon."
-
-"In the first place, which dungeon are you planning to go to?"
+--Yes--
 
 <br />
-The dungeon on the remote island of the Fudeel Duke territory, where I
-obtained my blessing (Gift), is nearby, but you can only encounter a
-spirit once in each dungeon.
+If I'm dealing with the undead, I could rely on the Rainbow Sword's
+companions.
 
-There's also a large-scale dungeon in the Rakston Duke territory in this
-country, but not only would it be a considerable journey, but it's also
-a high-difficulty dungeon where sub-dragon species appear, which has
-never been conquered, and I've heard that even the royal family has
-given up on conquering it.
+Members of the shadows are always lurking in big cities. If I leave a
+message at the Adventurer's Guild in that city, the Rainbow Sword should
+be contacted.
 
-In intermediate or lower-level dungeons, you can conquer them, but there
-are no spirits. I wonder if there's a new dungeon where a spirit has
-been born?
+Even so, it's questionable whether I can make it in time for Amor's
+actions. Unless Prince Amor's attack target is clear, I think it would
+be better to have the Rainbow Sword protect Elena's surroundings. I left
+a message for the shadows in a town along the way just in case, but in
+the current situation, Nero and I have no choice but to act.
 
-<br />
-While I was having a decent meal for the first time in a while at a
-cheap stall in the town, I asked that question, and Aria told me while
-eating vegetable stew.
+...But, what is that Saint thinking? If you think about it normally, if
+a Prince from the same faction as her causes problems, it would also
+hurt her.
 
-"The place we're heading to is the large-scale dungeon managed by the
-Leicester Count family ."
+But... maybe, even if it becomes a future "wound," if her only goal is
+to "accomplish her purpose," just like Amor...
 
-"...Are you serious?"
-
-I couldn't help but mutter the same words again, and when I put my hand
-on Aria's forehead, the black kitty on her shoulder hit my hand with its
-tail... so the illusion has tactile sensation.
+"We're making a big mistake..."
 
 <br />
-The reason why I was diving into that dungeon was because it was the
-easiest one among the large-scale dungeons owned by the state.
+A few days later, as I approached the Second Knight Order's training
+grounds, I felt a strange sense of unease.
 
-That's why the former crown prince's group conquered that dungeon. Only
-a few years have passed since then, so there are still few monsters, and
-the difficulty may have decreased.
+"I don't sense anything...?"
 
-But --
+Among the several training grounds, I heard that this one was being used
+by those who were applying on behalf of Amor. But if there were as many
+as two hundred people, their presence would spread like heat, and traces
+of people would remain around them.
 
-"There are still a lot of people there who remember my face, you know?"
-
-<br />
-I've been based in that place since I was a child, so my face is known
-both publicly and privately.
-
-If I'm found out, I don't mind, but I think Aria, who's known as a
-famous adventurer, would have her reputation damaged.
+Sensitive monsters and animals would no longer approach the area because
+they could sense that presence. But around here, I can't feel much of a
+human presence, and I can't even sense the presence of large animals
+that should be sensitive to it.
 
 <br />
-"That's why I'll be in trouble if you don't get into better shape.
-Here."
+"Gwo..."
+
+"...This is."
+
+When Nero called out, and I turned my attention to it, there were traces
+of a large number of people passing by a little while ago. The ground of
+the highway, which is compacted and difficult for even ruts to remain,
+is one thing, but if a large number of people pass by, those who
+couldn't fit on the highway would leave traces of breaking branches and
+stepping on grass.
+
+Weeds will naturally recover even if they are trampled on, but judging
+from the condition of these broken twigs, it seems that people passed
+through here... a few days ago.
+
+Have the Prince and the Second Knight Order already started moving?
+
+<br />
+"Nero, do you sense any people around?"
+
+At my voice, Nero stretched out his whip-like antennae extending from
+his ears, and the electric light bounced off.
+
+I don't really understand it, but according to that woman's "knowledge,"
+he is sending out electric waves over a wide area to detect weak
+biological reactions. It only detects biological life, so it can't even
+distinguish whether it's a person or not, but if there are creatures
+moving in a group in this forest, it's only wolves or people.
+
+If Nero can't sense anything, then there's no one around here. All
+that's left is to diligently search for traces of the highway while
+tracking...
+
+"Gaaa!!"
+
+"Roger."
+
+Responding to Nero's voice, I ran off in the direction his eyes were
+pointing.
+
+If it's a long distance, it's faster to ride on Nero's back, but for
+about an hour, my running ability has improved to the point where I can
+run alongside Nero without carrying me.
+
+<br />
+Nero and I didn't use the highway, but ran through the forest, jumping
+from tree to tree, from rock to rock. After running through the forest
+for about half an hour—
+
+"Gaaa!"
+
+"I see them!"
+
+<br />
+I saw a dozen or so people and baggage carts proceeding along a narrow
+highway. It's the Second Knight Order, but not the main force. Probably
+baggage soldiers carrying spare equipment and food.
+
+I don't know if they are undead who support Amor, or soldiers who
+haven't been told anything. If they're just soldiers, I don't have any
+grudges against them, but I'll still take rough measures.
+
+<br />
+Zaa!
+
+"Hmph! Who's there!?"
+
+When I left Nero in the forest and appeared from the forest next to the
+highway, blocking the road, the baggage soldiers instantly composed
+their weapons from a moment of surprise.
+
+"I'm a knight from the shadows. I received a report that undead
+creatures have infiltrated the Second Knight Order and I'm
+investigating. Even if you don't remember anything, cooperate for the
+sake of national security."
+
+"——!?"
+
+At my straightforward questioning without any bargaining, several
+knights trembled with tension.
+
+...Amor's followers? Not only that, but behind the five soldiers who
+showed tension, there were those who seemed to be "undead" who showed no
+reaction to this situation.
+
+On the other hand, if they obediently accept an investigation based on
+the words of an unknown little girl like me, or if they ask me back with
+righteous arguments like proper soldiers, they are probably people who
+really don't know anything, and I would be wasting my time...
+
+<br />
+"...Do it!"
+
+At the same time as the soldier who seemed to be the captain muttered
+with a determined look on his face, the soldiers behind him, who hadn't
+shown any reaction, drew their weapons and jumped out.
+
+"So they really are undead."
+
+I slashed the neck of the soldier who jumped out first with a knife to
+confirm that he was undead.
+
+Nero's presence moved in the forest, but I lightly instructed him with
+my eyes, "Don't move."
+
+<br />
+"So, the Second Knight Order was plotting a rebellion."
+
+Without breaking my expression, I contemptuously called them "traitors,"
+and those who still had reason and intelligence, including the captain,
+changed their expressions.
+
+"Does a mere knight of the shadows dare to mock our aspirations!"
+
+A young soldier who raised that cry thrust out his spear, and while
+dodging the spear and the undead's attack, I slashed the soldier's arm
+with a knife. He dropped the spear and retreated, showing off his arm as
+it healed with a grin while drawing the sword on his waist.
+
+"You dogs of the greedy margrave! We, who have been given power by
+Prince Amor, are justice——"
+
+"Don't take unnecessary attacks!"
+
+"C, Captain, I'm sorry."
+
+The captain admonished the young soldier who was saying something, and
+the soldier looked pale as if he had remembered something.
 
 "............"
 
-Aria said that and handed me a copper flask filled with a
-pungent-smelling medicine, and even though I had finally had a decent
-meal, I grimaced as I swallowed the medicine.
+Margrave...? Why does that name come up here? Is it because I pretended
+to be a member of the shadows?
 
-"...I've also heard rumors that the spirit of that dungeon isn't very
-friendly to people."
-
-Or rather, you could say they don't understand people. That's why their
-wishes were misinterpreted, and Amor and Nathaniel acquired such powers.
-
-"You've conquered it three times, right? Negotiate well. You just need
-to focus on healing your body. You can use my wish too."
-
-"I wonder what I should do..."
-
-Since I was forced to drink bitter medicine, I said something a little
-mean, and Aria glared at me with her eyes alone.
-
-"I'll get really angry."
-
-"It would be unbearable if I was given more bitter medicine."
+That's also a concern, but why do the undead care about injuries? That
+may be related to whether the undead have reason or not.
 
 <br />
-Aria's impulsive actions are probably the result of her thinking things
-through logically in her mind, but because Aria doesn't talk much, the
-people around her get swept up in it.
+During that time, I barely avoided the attacks of the mindless undead
+that were attacking, and slashed at them with my knife. But the
+doll-like soldiers did not flinch and crossed the line of death, and I
+was driven to a large tree trunk by attacks that exceeded the limits of
+their strength.
 
-That's what I thought as we made our way to the royal capital.
+These undead are not yet the same as those Temple Knights, who became
+"beasts."
 
-We could get there faster if we took a dangerous route, but it seems
-like it will take more than three weeks if we choose a route that a
-carriage can safely travel on. There aren't even any bandits on a proper
-road, so it'll be boring.
+Those who still have reason and intelligence. Those who only listen to
+orders like dolls. And those who attack like beasts... If the reason I
+stopped them earlier is the reason for the difference between the three,
+then I can vaguely see what that means.
 
-It would be nice if I could read a book, but my assets have been frozen.
-After all, you can't withdraw money that a dead person left with the
-Adventurer's Guild.
+"Wait! Surround them so they can't escape!"
 
-I'm sure there's something left if I can get back to my hidden base, but
-it's painful that I'm forbidden from using "Soul Thorn."
+At the captain's words, the undead stopped moving and scattered as if to
+surround me.
 
-<br />
-I had a few large gold coins in my \[Shadow Storage\] along with my
-clothes, but everything inside had disappeared.
+Certainly, that's the surest way to fight with less damage. But in this
+state, it should be possible to neutralize me faster by having the
+immortal undead attack me as is.
 
-Is it because I died once...? I thought it was just expanding space, but
-maybe it's something closer to spatial transfer.
-
-It's a scary thought, but I have no choice but to think it's better than
-it exploding in my stomach.
-
-That's why I'm penniless right now. I'm relying on Aria for clothes and
-travel, and I've borrowed about ten gold coins, but I can't waste them.
-So the only thing I can do to kill time is to write in this blank book.
+But, the reason why they bother to stop that and "reduce damage" is——
 
 <br />
-We travel south, bypassing the royal capital, and arrive at the town
-with the dungeon, which doesn't evoke any particular emotions in us.
+"If they die too much, they can't be controlled?"
 
-The Leicester Count family is still in charge of management, but
-according to Aria, my mother, who lost her entire family, was sent back
-to her family home, and a distant branch family became the new Leicester
-Count.
-
-I don't really care, but I won't be able to read forbidden books
-anymore. But since I remember most of them, I'll eventually turn them
-into books and spread them around.
+"...You——!"
 
 <br />
-"I'm going to the Adventurer's Guild."
+It's a guess that I didn't want to be right, but it seems to be correct.
 
-"...Alright."
+Perhaps they themselves haven't been told, but the undead who have been
+parasitized by insects "die" from the wounded areas...
 
-It's a hassle to point out everything, but what does she intend to do?
+The parasitic insect repairs or regenerates when the host's body is
+injured. But there's no such thing as a good deal where you can get an
+immortal body without any compensation.
 
-When we entered, the adventurers inside cast many glances at us,
-probably because they could tell we were two young women even though we
-were wearing cloaks.
+When the injured flesh dies, the insect manipulates the flesh and blood
+like necromancy, forcibly connecting them. There is probably a limit to
+mana, just like vampires, but they have acquired a regenerative power
+similar to that of a vampire.
 
-"What can I do for you?"
+That's why if they get too injured, they will no longer be living
+creatures, and their reason will be lost in stages.
 
-Aria went to the reception desk where an old man was, and when she took
-off her hood there, the old man blinked.
-
-"Oh, it's been a while. Do you remember me?"
-
-"Of course. Do you remember me?"
-
-"There aren't many young people here, you know. Are you diving into the
-dungeon again after a long time?"
-
-It seems that this old man is an acquaintance of Aria, and he had a kind
-face, as if a relative's child had visited him after a long time.
-
-"Yeah. I'm going to dive into the dungeon for a long time, so I want you
-to register the guy behind me as an adventurer."
-
-"A long time, huh...? I understand about registering that person as an
-adventurer. There's a rank test, but..."
-
-"That's supposed to be done at the guild in the royal capital. For
-now..."
-
-At that point, Aria glanced at me, so I created ice on the spot and
-placed it on the counter, and the receptionist's old man looked
-surprised.
-
-"Ice... are you a magician?"
-
-However... after seeing my skill in creating ice without chanting, the
-old man remembered something and narrowed his eyes suspiciously.
-
-"...Is this your first time here?"
-
-"Yes, it is."
-
-"Then, could you take off your hood and show me your face?"
+That Temple Knight was able to control them well, but these soldiers
+can't control the undead who have become beasts.
 
 <br />
-I don't remember, but... he might have met "me" before.
+"...What are you going to do with that body? Is that what Prince Amor
+did? At least Lady Melrose and Lord Dandorle would never do such a thing,
+though?"
 
-It's fine to show my face, but what should I do? I glanced at Aria, and
-when Aria nodded, I gave up and took off my hood.
+"Shut up, you dog of the Prime Minister!"
 
-In the worst case... I'll have Aria kill me.
+When I put the questions that I was concerned about into words, the
+soldier, who should have been worried about his own body, raised his
+voice as expected.
 
-<br />
-"This is... excuse me. It seems I was mistaken..."
+"Your filthy shadow's owner is finished too. No matter how much the
+Dandorle family is the Grand Knight Commander, they won't be able to
+protect against 200 immortal soldiers without the knights they should be
+protecting!"
 
-The old man, who saw my face, wiped the sweat from his forehead and
-lowered his head.
+"............"
 
-"Aria...?"
+Attack the Dandorle family? If that's what those words mean, then it's a
+simultaneous attack on the Melrose and Dandorle families.
 
-When I looked at Aria to ask what was going on, she silently pointed
-behind me.
+Two hundred undead are a considerable threat, but not enough to attack
+two high-ranking noble families at the same time. So, instead of
+directly attacking the castle where the knights are, are they planning
+to attack them when they return to their mansions?
 
-There, the adventurers were staring at me with blank faces, and one of
-them muttered.
+Even if the two families' mansions are in the royal capital, they are
+not in the middle of the royal capital. Some of the high-ranking nobles
+build their mansions outside the walls of the royal capital, and that
+also functions as protection for the royal capital.
 
-"Amazing... it's like snow."
-
-He might be from somewhere far north.
-
-My black hair has turned almost silver, and my earthy skin has turned
-white. Not only that, but my face seems to have changed a lot due to
-improved blood circulation.
-
-<br />
-"So, miss. What name would you like?"
-
-Listening to the old man using the kind of language you would use to
-address a young lady instead of an adventurer, Aria's lips curled into a
-slight smile as she opened her mouth.
+The problem is that the Dandorle mansion is in the north of the royal
+capital, and the Melrose family is in the south.
 
 <br />
-"...Snow..."
+"Nero!"
+
+"Gaaaaaa!!"
+
+Responding to my voice, Nero jumped out of the forest, crushed one of
+them who had stopped moving, and neutralized him by trampling on his
+heart.
+
+In that instant, I also fully activated my body enhancement and tore
+apart the heads and hearts of the undead with my knife and dagger.
+
+"I don't have anything else I want to hear."
+
+There is no time. The attack has probably already begun.
+
+<br />
+"Wh-what!?"
+
+"A monster!"
+
+"Damn it! Everyone, 'attack'!"
+
+The soldiers with reason panicked and ordered the undead to attack. But
+their judgment is slow. If they had zombified to the beast state, they
+would have attacked on their own, but the soldiers who prioritized the
+command form and feared losing their reason and consciousness even more
+were afraid of dying even though they were immortal.
+
+<br />
+"Haaaaaaaaaaaaaa!!"
+
+"Gaaaaaaaaaaaaaaaaa!!"
+
+<br />
+By increasing the purity of my mana and swinging my blade while spinning
+around, and Nero's claws swinging while spinning around back-to-back,
+tore apart and ripped apart the undead who had been ordered to jump in
+like a small tornado.
+
+No matter how immortal they are, if their bodies are cut into pieces,
+their movement can be sealed. Even if they don't die from that, I can
+stab them later to finish them off.
+
+<br />
+"Impossible..."
+
+The captain muttered in astonishment at the sight of the soldiers who
+were supposed to be immortal being "destroyed," and in the next moment,
+he raised his voice as if glaring at us.
+
+"Anyone! Tell His Highness about this!"
+
+<br />
+Perhaps because they had hardened their resolve in the face of genuine
+"death," the captain tried to buy time by sacrificing himself in order
+to inform the main force of the threat that "we" posed.
+
+Perhaps sensing his resolve, the conscious soldiers attacked Nero and
+clung to him like death soldiers.
+
+Seeing the figures of his comrades, the young soldier who had been
+enraged at first made a tormented expression, but tried to escape from
+the battlefield without hesitation.
+
+But I can't let you guys escape either. I threw a throwing knife at his
+back—
+
+"You think I'll let you..."
+
+There, the captain jumped into the line of fire and caught the knife
+with his forehead.
+
+They will escape if things continue like this. Just then—
+
+<br />
+"Out of my way!!"
+
+A man who appeared to be an adventurer appeared from the other side of
+the highway, perhaps having heard the sound of battle, and the young
+soldier drew his sword and tried to cut him down.
+
+Kiiin!!
+
+"Gah!?"
+
+But the young soldier was cut in half along with his steel sword by the
+greatsword that the adventurer unleashed, and was blown away scattering
+blood.
+
+A jet-black greatsword that was taller than my height... The man who
+swung that greatsword with ease, who was even bigger than the
+greatsword, made a slight smile when he found me.
+
+<br />
+"Was my help unnecessary? Aria."
+
+"Feld!"
+
 
 
 
