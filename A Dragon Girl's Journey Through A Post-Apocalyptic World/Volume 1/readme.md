@@ -72,3 +72,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [25 Granny's House (6)](./chapters/section_0025.md)
 
 [26 Granny's House (7)](./chapters/section_0026.md)
+
+[27 Granny's House (8)](./chapters/section_0027.md)
