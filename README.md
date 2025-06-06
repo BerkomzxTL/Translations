@@ -2,11 +2,18 @@
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
-## Formatted PDFS
+## Formatted PDFS & Additional Translations
+- I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
+  - [https://ouo.io/GVDBt6](https://ouo.io/GVDBt6)
+- Reincarnated as the Narrow-Eyed Character in a Magical Girl Battle Story
+  - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
+- Scarlet Lily Bond
+  - [https://ouo.io/7gRrHWK](https://ouo.io/7gRrHWK)
 - Second Story Online
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
-- I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
-  - [https://ouo.io/jd0RYM](https://ouo.io/jd0RYM)
+- The Maid of the Cursed Princess
+  - [https://ouo.io/y8KBarM](https://ouo.io/y8KBarM)
+
 
 ## Titles
 - Demon Noble Girl \~Story of a Careless Demon\~ (Volumes 10, 11, 12, Side Stories)

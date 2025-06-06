@@ -10,4 +10,4 @@ _Tags_: Romance, School Life, Yuri
 
 Note: I did not translate this
 
-Formatted PDFS - [https://ouo.io/jd0RYM](https://ouo.io/jd0RYM)
+[List of formatted PDFS](../README.md)
