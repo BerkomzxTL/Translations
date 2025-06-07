@@ -2,7 +2,7 @@
 
 # A Dragon Girl's Journey Through A Post-Apocalyptic World
   
-Volume 1
+Volume 1: A World Without People
 
 _Author:_ _Harunohi Biyori_
 
@@ -74,3 +74,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [26 Granny's House (7)](./chapters/section_0026.md)
 
 [27 Granny's House (8)](./chapters/section_0027.md)
+
+[28 Granny's Memories](./chapters/section_0028.md)

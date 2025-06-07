@@ -11,23 +11,21 @@
   - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
 - Scarlet Lily Bond
   - [https://ouo.io/7gRrHWK](https://ouo.io/7gRrHWK)
-- Second Story Online
+- Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
 - The Maid of the Cursed Princess
   - [https://ouo.io/y8KBarM](https://ouo.io/y8KBarM)
 
 
 ## Titles
-- Demon Noble Girl \~Story of a Careless Demon\~ (Volumes 10, 11, 12, Side Stories)
-- I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
-  - Reincarnated as a Side Heroine
+- A Dragon Girl's Journey Through A Post-Apocalyptic World
 - A Maiden's Unwanted Heroic Epic (Chapters 311-357)
-- Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
-  - Second Story Online
+- Apotheosis of a Demon - A Monster Evolution Story (additional side stories)
+- Demon Noble Girl \~Story of a Careless Demon\~ (Volumes 10, 11, 12, Side Stories)
 - Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
   - Heartwarming Reincarnation
 - Liberation of the Demon Kingdom \~The Tale of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
   - Liberation of the Demon Kingdom
-- A Dragon Girl's Journey Through A Post-Apocalyptic World
-- Apotheosis of a Demon - A Monster Evolution Story (additional side stories)
 - Otome Game no Heroine de Saikyou Survival (Chapters 229-296)
+- Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
+  - Second Story Online
