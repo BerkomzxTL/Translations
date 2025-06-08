@@ -9,7 +9,7 @@ Bau!
 Today, too, Jinbei patrols the vegetable patch. At first, mice and
 raccoons would come to target the vegetables, but Jinbei would chase
 them away, and ever since the world got colder, they’ve rarely been seen
-anymore/  
+anymore.
 Previously, it was just a matter of patrolling the vegetable patch left
 behind by “Master,” but recently, protecting the home garden has also
 become Jinbei’s duty.  
