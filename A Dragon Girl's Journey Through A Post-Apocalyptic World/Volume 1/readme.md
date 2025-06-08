@@ -76,3 +76,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [27 Granny's House (8)](./chapters/section_0027.md)
 
 [28 Granny's Memories](./chapters/section_0028.md)
+
+[29 \[Side Story\] Jinbei's Tribulations](./chapters/section_0029.md)
