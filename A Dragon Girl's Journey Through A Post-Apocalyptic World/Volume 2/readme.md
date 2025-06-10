@@ -22,3 +22,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 # Table of Contents
 
 [30 A New Journey](./chapters/section_0001.md)
+
+[31 Signs Of Spring](./chapters/section_0002.md)
