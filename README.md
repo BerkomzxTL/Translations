@@ -6,6 +6,8 @@
 - Demon Noble Girl \~Story of a Careless Demon\~
   - Volumes 10, 11, 12, Side Stories
   - [https://ouo.io/0zduCvs](https://ouo.io/0zduCvs)
+- Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
+  - [https://ouo.io/FTI2Ylj](https://ouo.io/FTI2Ylj)
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
   - [https://ouo.io/GVDBt6](https://ouo.io/GVDBt6)
 - Reincarnated as the Narrow-Eyed Character in a Magical Girl Battle Story
