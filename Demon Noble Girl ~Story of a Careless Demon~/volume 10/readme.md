@@ -26,6 +26,7 @@ For those wondering how this hooks into pre-existing releases on NovelUpdates...
 - Other than chapter 15, volume 10 had already been completley translated, meaning that volume 10 ends on ["c252"](https://fanstranslations.com/novel/demon-noble-girl-story-of-a-careless-demon/chapter-252/)
 - Some translations split chapters into parts, but these parts were released as new chapters, so the chapters on NovelUpdates do NOT align with the chapters used in the web novel (and this translation)
 
+[List of formatted PDFS](../../README.md)
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 

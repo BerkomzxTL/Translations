@@ -12,6 +12,8 @@ Volume 11
 
 raw: https://ncode.syosetu.com/n5520de/?p=2
 
+[List of formatted PDFS](../../README.md)
+
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
 # Table of Contents

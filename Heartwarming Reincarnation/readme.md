@@ -12,6 +12,7 @@ _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 
 [\[Novel Updates\]](https://www.novelupdates.com/series/heartwarming-different-world-reincarnation-days-with-level-countertop-item-carryover-im-the-strongest-little-girl/)
 
+[List of formatted PDFS](../README.md)
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 

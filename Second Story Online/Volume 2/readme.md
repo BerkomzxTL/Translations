@@ -15,6 +15,8 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 [\[Novel Updates\]](https://www.novelupdates.com/series/second-story-online-aiming-to-become-the-worlds-number-1-ideal-witch/)
 
 
+[List of formatted PDFS](../../README.md)
+
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
 
