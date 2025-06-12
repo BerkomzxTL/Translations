@@ -26,3 +26,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [31 Signs Of Spring](./chapters/section_0002.md)
 
 [32 A Small Encounter](./chapters/section_0003.md)
+
+[33 Tempted Off Course](./chapters/section_0004.md)
