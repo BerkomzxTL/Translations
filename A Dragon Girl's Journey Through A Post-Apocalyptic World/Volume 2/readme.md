@@ -28,3 +28,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [32 A Small Encounter](./chapters/section_0003.md)
 
 [33 Tempted Off Course](./chapters/section_0004.md)
+
+[34 Radio Tower](./chapters/section_0005.md)
