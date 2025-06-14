@@ -30,3 +30,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [33 Tempted Off Course](./chapters/section_0004.md)
 
 [34 Radio Tower](./chapters/section_0005.md)
+
+[35 The Ape’s Friend (1)](./chapters/section_0006.md)
