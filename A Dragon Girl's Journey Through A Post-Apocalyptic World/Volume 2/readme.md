@@ -32,3 +32,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [34 Radio Tower](./chapters/section_0005.md)
 
 [35 The Ape’s Friend (1)](./chapters/section_0006.md)
+
+[36 The Ape’s Friend (2)](./chapters/section_0007.md)
