@@ -34,3 +34,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [35 The Ape’s Friend (1)](./chapters/section_0006.md)
 
 [36 The Ape’s Friend (2)](./chapters/section_0007.md)
+
+[37 The Ape’s Friend (3)](./chapters/section_0008.md)
