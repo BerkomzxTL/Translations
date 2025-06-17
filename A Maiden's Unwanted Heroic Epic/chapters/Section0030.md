@@ -976,7 +976,7 @@ A noblewoman from a Marquis's family and Arne's senior.
 Initially guided Arne as her instructor when Arne first arrived,
 troubled by her clumsiness.  
   
-Briefly appeared in 'Malingerer ~The Servant Arne Saw, I Think~'.  
+Briefly appeared in 'Malingerer \~The Servant Anne Saw, I Think\~'.  
   
 Prioritizes, for better or worse, finding a good gentleman, and shows no
 interest in politics or advancement like a typical royal servant.  

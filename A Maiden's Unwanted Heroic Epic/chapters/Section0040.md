@@ -2,7 +2,7 @@
 
 
 
-## Chapter 350: Magical Girl Magical☆Bery CDN Extra Edition ~Her Majesty's Magnificent Everyday Life~
+## Chapter 350: Magical Girl Magical☆Bery CDN Extra Edition \~Her Majesty's Magnificent Everyday Life\~
 
 *AN:*  
 *Despite saying it's April Fool's Day, Magical☆Bery continues to be
@@ -228,8 +228,8 @@ tentacle pets.
 <br /><br />
 
   
-***Magical Girl Magical☆Bery CDN Extra Edition ~Her Majesty's
-Magnificent Everyday Life~***  
+***Magical Girl Magical☆Bery CDN Extra Edition \~Her Majesty's
+Magnificent Everyday Life\~***  
   
 It was a Saturday.  
 The head of the household, Bogan, was on a business trip overseas, and
@@ -253,8 +253,8 @@ It was an action game about controlling magical girls to stop the plot
 of the 'Root Tentacle', a being lurking in the depths of space. This was
 a test play for difficulty adjustment. The game was based on the
 exploits of the Magical Bery girls in the recently released movie,
-'Magical Girl Magical☆Bery CDN Theatrical Release ~The Exorcist☆Shelna:
-A Wonder Beyond Time and Space~', and delved into finer details not
+'Magical Girl Magical☆Bery CDN Theatrical Release \~The Exorcist☆Shelna:
+A Wonder Beyond Time and Space\~', and delved into finer details not
 shown in the movie.  
 Even Selene, who was more of a performer than a player, was impressed by
 the meticulous settings, commenting, "So that's how it is".  

@@ -2,7 +2,7 @@
 
 
 
-## Chapter 323: \[Theatrical Release\] Magical Girl Magical☆BeryーCDN ~Exorcist☆Shelna and the Threat Transcending Time and Space~
+## Chapter 323: \[Theatrical Release\] Magical Girl Magical☆BeryーCDN \~Exorcist☆Shelna and the Threat Transcending Time and Space\~
 
 *AN: I was sad that the Anne side story didn't feel right, so from now
 on I'll be incorporating cosmic horror and magical girl elements in a
@@ -59,7 +59,7 @@ Unusually, she was dressed in a ladylike tailored suit and carrying
 shopping bags.  
 She stared, speechless, at the image on the large living room screen.  
 Krische, sitting on the sofa watching "Magical Girl Magical☆Bery: The
-Movie, Part 2 ~Magical Cooking of Love and Justice~," tilted her head.  
+Movie, Part 2 \~Magical Cooking of Love and Justice\~," tilted her head.  
 Selene compared the faces of the Magical Bery on screen and the real
 Bery with an indescribable expression.  
 The Nyururun family and their friends, writhing ecstatically from
@@ -122,8 +122,8 @@ placed her on her palms.
 "You're too kind to that insect."  
   
 Selene glared and sighed, then operated the remote, bringing up "Magical
-Girl Magical☆Bery: The Movie, Part 1 ~The Birth of the Young Magical
-Maid~" on the screen.  
+Girl Magical☆Bery: The Movie, Part 1 \~The Birth of the Young Magical
+Maid\~" on the screen.  
   
 —Bery (14) walking to school, silently attending class, and spending her
 break without talking to anyone.  
@@ -241,7 +241,7 @@ Bery snatched the remote from Selene, who was about to fast-forward, and
 pressed the stop button, her face bright red. She sighed.  
   
 This was the climax of "Magical Girl Magical☆Bery: The Movie, Part 1
-~The Birth of the Young Magical Maid~".  
+\~The Birth of the Young Magical Maid\~".  
 Before the decisive battle with the seven powerful evil entities, Bery
 (14), lacking confidence, confided her feelings to Kreschenta, was
 encouraged, wiped away her tears, and made a resolve; it was one of the

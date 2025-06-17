@@ -2,7 +2,7 @@
 
 
 
-## Chapter 331: Super Galaxy Queen☆Krischelia ~The Beloved Princess With a Too-Powerful Destiny Finds Happiness in a Gentle World~
+## Chapter 331: Super Galaxy Queen☆Krischelia \~The Beloved Princess With a Too-Powerful Destiny Finds Happiness in a Gentle World\~
 
 *AN:*  
 *Thank you for enjoying A Maiden's Unwanted Heroic Epic.*  
@@ -49,8 +49,8 @@ Wrong."*
   
 *In addition, the title, which sounds dark from the very appearance, "A
 Maiden's Unwanted Heroic Epic," has been changed accordingly.*  
-*"Super Galaxy Queen☆Krischelia ~The Beloved Princess With a
-Too-Powerful Destiny Finds Happiness in a Gentle World~"*  
+*"Super Galaxy Queen☆Krischelia \~The Beloved Princess With a
+Too-Powerful Destiny Finds Happiness in a Gentle World\~"*  
 *Please note that this will be the case.* 
 <br /><br />
 

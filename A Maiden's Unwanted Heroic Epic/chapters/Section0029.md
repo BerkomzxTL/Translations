@@ -67,6 +67,10 @@ Elsren \> Gulshan \> Alberan ≈ Elderant \> Arna
 This isn't relevant to the story's entertainment value, but it's just a
 general idea! Please use it as a reference.  
 
+------------------------
+*TN: I put together the countries/cities*  
+
+![large_map](Images/large_map.png)  
 
 ---
 [TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0028.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0030.md)
