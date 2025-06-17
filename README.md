@@ -3,6 +3,9 @@
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
 ## Formatted PDFS & Additional Translations
+- A Maiden's Unwanted Heroic Epic
+  - Chapters 1-363
+  - [https://ouo.io/mA50gY](https://ouo.io/mA50gY)
 - Demon Noble Girl \~Story of a Careless Demon\~
   - Volumes 10, 11, 12, Side Stories
   - [https://ouo.io/0zduCvs](https://ouo.io/0zduCvs)
