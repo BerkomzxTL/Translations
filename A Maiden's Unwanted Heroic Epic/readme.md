@@ -10,6 +10,8 @@ _TN: BerkomzxTL_
 
 [\[Source\]](https://ncode.syosetu.com/n1184em/)
 
+[\[NovelUpdates\]](https://www.novelupdates.com/series/a-maidens-unwanted-heroic-epic/)
+
 [\[Chapters 1-41\]](https://hecatescorner.wordpress.com/a-maidens-unwanted-heroic-epic/)
 
 [\[Chapters 42-310\]](https://inoveltranslation.com/novels/a8509c16-0da1-4401-a852-14d3995077a9)
