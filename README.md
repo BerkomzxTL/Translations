@@ -20,6 +20,9 @@
   - [https://ouo.io/7gRrHWK](https://ouo.io/7gRrHWK)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
+- The Legend of the Fox Yokai of Jirisan
+  - Light editing/normalized some names
+  - [https://ouo.io/8OxDH4](https://ouo.io/8OxDH4)
 - The Maid of the Cursed Princess
   - [https://ouo.io/y8KBarM](https://ouo.io/y8KBarM)
 - Otome Game no Heroine de Saikyou Survival
