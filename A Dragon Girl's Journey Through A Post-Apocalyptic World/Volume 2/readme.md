@@ -40,3 +40,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [38 The Ape’s Friend (4)](./chapters/section_0009.md)
 
 [39 Abandoned Village (1)](./chapters/section_0010.md)
+
+[40 Abandoned Village (2)](./chapters/section_0011.md)
