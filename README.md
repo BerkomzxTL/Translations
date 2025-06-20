@@ -21,7 +21,7 @@
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
 - The Legend of the Fox Yokai of Jirisan
-  - Light editing/normalized some names
+  - Light editing; standardized some names
   - [https://ouo.io/lCckt6](https://ouo.io/lCckt6)
 - The Maid of the Cursed Princess
   - [https://ouo.io/y8KBarM](https://ouo.io/y8KBarM)
@@ -40,6 +40,6 @@
 - Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
 - Liberation of the Demon Kingdom \~The Tale of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
 - Otome Game no Heroine de Saikyou Survival
-  - LN volume 7
+  - LN volumes 7, 8
   - Chapters 229-297
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
