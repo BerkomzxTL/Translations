@@ -44,3 +44,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [40 Abandoned Village (2)](./chapters/section_0011.md)
 
 [41 Where People Live](./chapters/section_0012.md)
+
+[42 The Children's Way Of Survival (1)](./chapters/section_0013.md)
