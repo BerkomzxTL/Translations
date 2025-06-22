@@ -46,3 +46,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [41 Where People Live](./chapters/section_0012.md)
 
 [42 The Children's Way Of Survival (1)](./chapters/section_0013.md)
+
+[43 The Children's Way Of Survival (2)](./chapters/section_0014.md)
