@@ -13,6 +13,9 @@
   - [https://ouo.io/FTI2Ylj](https://ouo.io/FTI2Ylj)
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
   - [https://ouo.io/GVDBt6](https://ouo.io/GVDBt6)
+- Otome Game no Heroine de Saikyou Survival
+  - LN Volume 7 - [https://ouo.io/HbxADS](https://ouo.io/HbxADS)
+  - LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
 - Reincarnated as the Narrow-Eyed Character in a Magical Girl Battle Story
   - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
 - Scarlet Lily Bond
@@ -25,14 +28,12 @@
   - [https://ouo.io/lCckt6](https://ouo.io/lCckt6)
 - The Maid of the Cursed Princess
   - [https://ouo.io/y8KBarM](https://ouo.io/y8KBarM)
-- Otome Game no Heroine de Saikyou Survival
-  - LN Volume 7 - [https://ouo.io/HbxADS](https://ouo.io/HbxADS)
-  - LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
+
 
 ## Titles
 - A Dragon Girl's Journey Through A Post-Apocalyptic World
 - A Maiden's Unwanted Heroic Epic
-  - Chapters 311-357
+  - Chapters 311-363
 - Apotheosis of a Demon - A Monster Evolution Story
   - Additional side stories
 - Demon Noble Girl \~Story of a Careless Demon\~
