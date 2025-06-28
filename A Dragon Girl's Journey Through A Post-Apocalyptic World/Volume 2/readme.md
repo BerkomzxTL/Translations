@@ -58,3 +58,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [47 The Children's Way Of Survival (6)](./chapters/section_0018.md)
 
 [48 The Children's Way Of Survival (7)](./chapters/section_0019.md)
+
+[49 The Children's Way Of Survival (8)](./chapters/section_0020.md)
