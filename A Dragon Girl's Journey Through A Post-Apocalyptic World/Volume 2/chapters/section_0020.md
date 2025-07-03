@@ -48,9 +48,8 @@ leave a scar on Rin's heart.
 Thump!!  
 From the rooftop of the ruined building to another roof, I ran through
 as fast as I could, shaking off the dregs in my heart.  
-  
-  
-  
+<br />  
+<br /> 
 "Can't you go any faster!"  
 "This is the limit! If you have a problem with it, go ahead and move the
 fallen trees!"  

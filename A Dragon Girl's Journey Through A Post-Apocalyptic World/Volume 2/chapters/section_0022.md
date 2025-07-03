@@ -77,9 +77,8 @@ My consciousness was dyed red as if it were being swallowed by the
 Dragon's instinct.  
 "――――――!"  
 In order to protect humans, I became a "Dragon" of my own volition.  
-  
-  
-  
+<br />  
+<br /> 
 It... had a human-like appearance. However, that individual had "horns"
 and a "tail."  
 Reddish-bronze skin. Silver hair with a reddish hue like a sakura

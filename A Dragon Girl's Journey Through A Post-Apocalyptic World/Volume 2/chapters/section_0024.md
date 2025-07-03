@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0023.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0023.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0025.md)
 
 
 
@@ -139,9 +139,8 @@ I folded my wings small and held the antler spear in front of me like an
 "――――――――――――――!!"  
 Amidst the resounding "Dragon's Roar," I became a burning "arrow" and
 pierced the giant elephant running ahead… into the "scar" on its back.  
-  
-  
-  
+<br />  
+<br />
 ―― Dodododododododododododododo!  
 "...A-an earthquake?"  
 The children were at the elementary school. Hanatsubaki had gone to
@@ -242,5 +241,5 @@ with a demon-like appearance and flames swirling all over her body.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0023.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0023.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0025.md)
 

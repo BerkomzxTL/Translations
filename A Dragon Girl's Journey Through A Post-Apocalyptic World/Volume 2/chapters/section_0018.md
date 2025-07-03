@@ -65,9 +65,8 @@ for me to leave.
 I gazed aimlessly in the direction of the settlement and secretly sighed
 at the fact that I ended up not being able to tell the kids...Rin about
 it after all.  
-  
-  
-  
+<br />  
+<br />  
 "…Is everyone ready?"  
 When the leader of the settlement called out, several of the twenty-two
 men and women responded in various ways.  
@@ -193,9 +192,8 @@ he had no right to see her, since he was going to abandon her once
 again, using her as a “decoy” to prevent them from chasing him. He
 gripped the steering wheel so tightly that his hands turned white.  
 "…Depart!"  
-  
-  
-  
+<br />  
+<br /> 
 ***"…Brrrruuu"***  
 In the grassland, dozens of kilometers away from the former prison,
 there was a herd of giant horses, each five meters tall.  
