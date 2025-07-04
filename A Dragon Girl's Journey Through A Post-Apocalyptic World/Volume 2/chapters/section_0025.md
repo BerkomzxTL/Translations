@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0026.md)
 
 
 
@@ -95,6 +95,7 @@ just them. The leader of the giant horses set off for a new land to
 create a new herd, and it galloped off somewhere without even looking
 back at the truck that exploded as if to cremate the humans.  
 <br />  
+<br />
 <br />
 "Tsubaki... nee-chan?"  
 The giant elephant was suddenly attacked and collapsed. Aki let out a
@@ -259,5 +260,5 @@ But, the other one...
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0026.md)
 
