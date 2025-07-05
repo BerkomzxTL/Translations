@@ -36,6 +36,8 @@
 - The Society's Pet Daughter
   - Complete
   - [https://ouo.io/M7ccErR](https://ouo.io/M7ccErR)
+- The Villainess Does Not Want to Die
+  - [https://ouo.io/9FZUP1E](https://ouo.io/9FZUP1E)
 
 
 ## Titles

@@ -72,3 +72,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [54 The Children's Way Of Survival (13)](./chapters/section_0025.md)
 
 [55 Family](./chapters/section_0026.md)
+
+[56 \[Side Story\] The White Wolf](./chapters/section_0027.md)
