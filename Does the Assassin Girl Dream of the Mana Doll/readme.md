@@ -22,3 +22,4 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 ### Arc 2: The Assassin Girl Sets Off on a Journey
 
+[Chapter 26: The Border Town of Azar](./chapters/index_split_000.md)
