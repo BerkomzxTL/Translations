@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0026.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0026.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](../../Volume%203/chapters/section_0001.md)
 
 
 
@@ -231,5 +231,5 @@ Bau!
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0026.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0026.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](../../Volume%203/chapters/section_0001.md)
 
