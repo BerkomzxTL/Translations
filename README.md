@@ -16,6 +16,8 @@
   - [https://ouo.io/h3PFd7](https://ouo.io/h3PFd7)
 - I Became a Forest Witch Who Raises Dragons
   - [https://ouo.io/hr3GDsx](https://ouo.io/hr3GDsx)
+- I Have Become The Snow Maiden I Created
+  - [https://ouo.io/wNde2oq](https://ouo.io/wNde2oq)
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
   - [https://ouo.io/GVDBt6](https://ouo.io/GVDBt6)
 - Otome Game no Heroine de Saikyou Survival
