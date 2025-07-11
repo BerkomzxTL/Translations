@@ -92,3 +92,5 @@ _TN: BerkomzxTL_
 [296 For Whose Sake](./chapters/section_0036.md)
 
 [297 Naivety and Resolve](./chapters/section_0037.md)
+
+[298 Reason for Resolve](./chapters/section_0038.md)

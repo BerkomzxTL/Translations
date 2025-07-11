@@ -50,9 +50,11 @@
   - Additional side stories
 - Demon Noble Girl \~Story of a Careless Demon\~
   - Volumes 10, 11, 12, Side Stories
+- Does the Assassin Girl Dream of the Mana Doll?
+  - Chapters 26-
 - Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
 - Liberation of the Demon Kingdom \~The Tale of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
 - Otome Game no Heroine de Saikyou Survival
   - LN volumes 7, 8
-  - Chapters 229-297
+  - Chapters 229-298
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch

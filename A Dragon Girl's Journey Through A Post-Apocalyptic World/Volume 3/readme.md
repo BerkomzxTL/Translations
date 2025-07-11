@@ -30,3 +30,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [60 Running](./chapters/section_0004.md)
 
 [61 Kei Truck](./chapters/section_0005.md)
+
+[62 The Signs of Summer](./chapters/section_0006.md)

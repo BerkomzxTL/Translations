@@ -63,3 +63,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 44: The Only Elegant Solution](./chapters/index_split_019.md)
 
 [Chapter 45: A Hand, Reaching Yet Unreachable](./chapters/index_split_020.md)
+
+[Chapter 46: Ephemeral Touch](./chapters/index_split_021.md)

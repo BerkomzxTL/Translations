@@ -18,6 +18,8 @@ TN: These chapters are (much more) slipshod (than usual) but I threw something t
 
 The epilogue is ongoing. As the afterword at the end of chapter 260 mentions, there's been a new chapter uploaded at the start of each month, 1 per month. May keep up with those for a little while.
 
+UPDATE 2025-07-11  
+I am planning on re-doing volume 10 at some point, just a little busy at the moment
 
 # Table of Contents
 
@@ -27,4 +29,4 @@ LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
 
 [Volume 9 (229-260)](Volume%209/readme.md)
 
-[Volume 10 (261-297)](Volume%2010/readme.md)
+[Volume 10 (261-298)](Volume%2010/readme.md)
