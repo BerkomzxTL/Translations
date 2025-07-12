@@ -1,16 +1,16 @@
 # Metadata
 
-Demon Noble Girl \~Story of a Careless Demon\~  
+# Demon Noble Girl \~Story of a Careless Demon\~  
 
 Volume 10
 
+_Author:_ _Harunohi Biyori_
   
- by Harunohi Biyori
-  
-  
- TL/Editor: Fans Translations/Berkomzx 
+_Translation: Fans Translations, mddbxa_
 
-raw: https://ncode.syosetu.com/n5520de/?p=2
+[\[Source\]](https://ncode.syosetu.com/n5520de/)
+
+[\[Novel Updates\]](https://www.novelupdates.com/series/demon-noble-girl-story-of-a-careless-demon/)
 
 <br/>
 mddbxa Note:

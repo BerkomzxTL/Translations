@@ -6,7 +6,7 @@ Volume 3: The World Of The Future
 
 _Author:_ _Harunohi Biyori_
 
-_TN: mddbxa_
+_Translation: mddbxa_
 
 _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 

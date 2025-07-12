@@ -4,7 +4,7 @@ Volumes 1-3
 
 _Author:_ _Iroha (彩帆)_
 
-_TN: mddbxa_
+_Translation: mddbxa_
 
 _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 

@@ -4,7 +4,7 @@
 
 _Author:_ _Shippo Tanuki (しっぽタヌキ)_
 
-_TN: mddbxa_
+_Translation: mddbxa_
 
 _Tags: Adventure, Fantasy, Shoujo, Slice of Life_
 

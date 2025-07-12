@@ -4,7 +4,7 @@ Volumes 1-3
 
 _Author:_ _Harunohi Biyori_
 
-_TN: mddbxa_
+_Translation: mddbxa_
 
 _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 

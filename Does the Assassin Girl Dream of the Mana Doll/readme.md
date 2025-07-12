@@ -4,7 +4,7 @@
 
 _Author:_ _鰯づくし_
 
-_TN: mddbxa_
+_Translation: mddbxa_
 
 _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo Ai, Tragedy_
 

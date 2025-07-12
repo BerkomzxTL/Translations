@@ -2,7 +2,7 @@
   
 _Author:_ _Keiji Aigami (相上圭司)_
 
-_TN: mddbxa_
+_Translation: mddbxa_
 
 _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 

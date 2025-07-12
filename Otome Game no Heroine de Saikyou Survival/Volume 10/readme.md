@@ -8,7 +8,7 @@ Volume 10 (261-296+)
 
 _Author:_   _Harunohi Biyori_
 
-_TN: mddbxa_
+_Translation: mddbxa_
 
 [\[Source\]](https://ncode.syosetu.com/n1391fj/)
 

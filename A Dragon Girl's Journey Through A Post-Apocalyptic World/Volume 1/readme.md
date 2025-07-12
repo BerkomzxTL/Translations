@@ -6,7 +6,7 @@ Volume 1: A World Without People
 
 _Author:_ _Harunohi Biyori_
 
-_TN: mddbxa_
+_Translation: mddbxa_
 
 _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 
