@@ -8,7 +8,7 @@ Volume 9 (229-260)
 
 _Author:_   _Harunohi Biyori_
 
-_TN: BerkomzxTL_
+_TN: mddbxa_
 
 _Tags: Action, Adventure, Fantasy_
 

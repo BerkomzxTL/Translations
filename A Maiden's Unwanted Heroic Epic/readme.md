@@ -6,7 +6,7 @@ Volume 12.2 (311-363)
 
 _Author:_   _Hifumi Shigoro_
 
-_TN: BerkomzxTL_
+_TN: mddbxa_
 
 [\[Source\]](https://ncode.syosetu.com/n1184em/)
 

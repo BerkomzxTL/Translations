@@ -1,5 +1,3 @@
-# BerkomzxTL
-
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
 ## Formatted PDFS & Additional Translations
@@ -25,9 +23,6 @@
   - LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
 - Reincarnated as the Narrow-Eyed Character in a Magical Girl Battle Story
   - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
-- Scarlet Lily Bond
-  - Completed
-  - [https://ouo.io/7gRrHWK](https://ouo.io/7gRrHWK)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
 - The Legend of the Fox Yokai of Jirisan
@@ -40,6 +35,8 @@
   - [https://ouo.io/M7ccErR](https://ouo.io/M7ccErR)
 - The Villainess Does Not Want to Die
   - [https://ouo.io/9FZUP1E](https://ouo.io/9FZUP1E)
+- Wilted Lily Anthology
+  - [https://ouo.io/KrkTQda](https://ouo.io/KrkTQda)
 
 
 ## Titles

@@ -6,7 +6,7 @@ Volume 3
 
 _Author:_ _Iroha (彩帆)_
 
-_TN: BerkomzxTL_
+_TN: mddbxa_
 
 _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 

@@ -6,7 +6,7 @@
 
 _Author:_   _Harunohi Biyori_
 
-_TN: BerkomzxTL_
+_TN: mddbxa_
 
 [\[Source\]](https://ncode.syosetu.com/n7529eu/)
 
