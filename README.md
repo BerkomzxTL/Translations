@@ -33,10 +33,10 @@
 - The Society's Pet Daughter
   - Complete
   - [https://ouo.io/M7ccErR](https://ouo.io/M7ccErR)
+- The Vampire Eldest Miss Thinks I Like Her
+  - [https://ouo.io/MkHMuoM](https://ouo.io/MkHMuoM)
 - The Villainess Does Not Want to Die
   - [https://ouo.io/9FZUP1E](https://ouo.io/9FZUP1E)
-- Wilted Lily Anthology
-  - [https://ouo.io/KrkTQda](https://ouo.io/KrkTQda)
 
 
 ## Titles

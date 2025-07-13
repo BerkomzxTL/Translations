@@ -34,3 +34,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [62 The Signs of Summer](./chapters/section_0006.md)
 
 [63 Ominous Presence](./chapters/section_0007.md)
+
+[64 Against Humans](./chapters/section_0008.md)
