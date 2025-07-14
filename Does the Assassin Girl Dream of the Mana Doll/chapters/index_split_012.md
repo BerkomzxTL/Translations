@@ -121,7 +121,7 @@ act as shields with their armor and bodies.
 It meant that, despite their playful demeanor, they were serious. If so,
 she couldn't possibly let such brave men die pointlessly.
 
-"There's another way. I'll throw up a physical barrier and charge in.
+"There's another way. I'll throw up an anti-physical barrier and charge in.
 I'll also use Mana Bolt to create a diversion, so you all can run in
 afterwards."
 
@@ -159,7 +159,7 @@ When she finished, she suddenly exposed herself beyond the corner.
 Immediately, arrows rained down. Arrows, arrows, arrows. For a moment,
 she even felt as if her vision was filled with arrows.
 
-And then—Ellie's physical barrier, as expected, absorbed all of them.
+And then—Ellie's anti-physical barrier, as expected, absorbed all of them.
 Simultaneously, she scanned, taking aim.
 
 "Mana Bolt!!!"

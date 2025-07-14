@@ -5,7 +5,7 @@
 ## Chapter 40: Something of a Homecoming
 
 Stepping into the vast chamber known as the *Garden of the Thunder
-Emperor*, Ellie deployed her anti-mana barrier and surveyed her
+Emperor*, Ellie deployed her anti-magic barrier and surveyed her
 surroundings.
 
 The intensely concentrated mana, glittering as particles drifting

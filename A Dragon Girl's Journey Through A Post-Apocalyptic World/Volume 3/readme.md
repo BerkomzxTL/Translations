@@ -36,3 +36,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [63 Ominous Presence](./chapters/section_0007.md)
 
 [64 Against Humans](./chapters/section_0008.md)
+
+[65 New Humanity](./chapters/section_0009.md)

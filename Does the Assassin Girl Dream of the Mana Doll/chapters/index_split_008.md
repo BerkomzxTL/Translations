@@ -146,7 +146,7 @@ forward.
 
 When the Prince smiled and assented, Ellie and the mage moved to the
 center of the training ground. Facing each other, Ellie pretended to
-quietly chant the spell for a magical barrier. As soon as she finished,
+quietly chant the spell for an anti-magic barrier. As soon as she finished,
 the mage understood that the barrier had deployed.
 
 "Yes, I'm ready. Anytime you wish."
