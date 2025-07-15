@@ -67,3 +67,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 46: Ephemeral Touch](./chapters/index_split_021.md)
 
 [Chapter 47: As King](./chapters/index_split_022.md)
+
+[Chapter 48: Necessary Cleanup](./chapters/index_split_023.md)

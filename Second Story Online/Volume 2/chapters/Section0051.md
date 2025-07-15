@@ -4,6 +4,10 @@
 
 # 51・Are You Interested in SSO?
 
+**Volume 2**
+
+----
+
 /////////////////////////  
   
 \[Let's Talk About History! \#130\]  
@@ -295,5 +299,5 @@ person who thinks that way.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0052.md)
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](../../Volume%201/chapters/Section0050.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0052.md)
 

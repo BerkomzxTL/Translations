@@ -6,8 +6,6 @@
 
 TN: If this is the first chapter of Assassin Girl/Mana Doll that you're reading from this repo, I wanted to mention that I started at chapter 26, picking up where femme fables left off, however novelupdates kept rejecting my new chapter even after filling in a bug report form thing... so, here's chapter 45. Anyway, I'd recommended going back and reading the femme fable tl + mine starting at 26 (no bias).
 
-Also, my chapters stockpile is feeble and trembling and I've been busy lately so for a while releases will be a bit sporadic... sorry. Doing all these at once cut into quite a bit and I didn't really want to just keep sitting on them and fighting NU
-
 ------------------------------------------------------------------------
 
 Without avoiding the spurting fresh blood, but rather embracing it,

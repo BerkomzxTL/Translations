@@ -1,8 +1,12 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0002.md)
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](../../volume%2011/chapters/Section0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0002.md)
 
 
 
 # Chapter 1: Abyss
+
+**Volume 12**
+
+----
 
 "......\[The Abyss\]......?"
 
@@ -274,5 +278,5 @@ had been sent to the Abyss after being defeated by Sylberthal.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0002.md)
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](../../volume%2011/chapters/Section0024.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0002.md)
 

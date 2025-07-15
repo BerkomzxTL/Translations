@@ -4,6 +4,10 @@
 
 # 96・Please Refrain From Posting Spoilers
 
+**Volume 3**
+
+----
+
 SSO General Thread Part 663  
   
 521://Anonymous 2  
@@ -604,5 +608,5 @@ I hope people don't come to the forest again...
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0097.md)
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](../../Volume%202/chapters/Section0095.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0097.md)
 

@@ -38,3 +38,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [64 Against Humans](./chapters/section_0008.md)
 
 [65 New Humanity](./chapters/section_0009.md)
+
+[66 Ambush](./chapters/section_0010.md)

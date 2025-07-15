@@ -4,6 +4,10 @@
 
 # 1・Welcome to SSO
 
+**Volume 1**
+
+----
+
 —For those seeking a second story.  
   
 Villagers who till the fields and live their days to the fullest.  

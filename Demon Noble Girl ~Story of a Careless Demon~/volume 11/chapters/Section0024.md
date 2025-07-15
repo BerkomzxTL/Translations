@@ -1,4 +1,5 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0023.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0023.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](../../volume%2012/chapters/Section0001.md)
+
 
 
 
@@ -986,5 +987,5 @@ the "Children of God" sent by the "World".
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0023.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](Section0023.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](../../volume%2012/chapters/Section0001.md)
 

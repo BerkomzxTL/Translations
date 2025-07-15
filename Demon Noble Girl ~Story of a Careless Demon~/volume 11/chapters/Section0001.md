@@ -1,8 +1,12 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0002.md)
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](../../volume%2010/chapters/10_18.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0002.md)
 
 
 
 # Chapter 1: To the Sylber Kingdom
+
+**Volume 11**
+
+------
 
 "It's been a long time. I'm glad to hear that you're in good health."
 
@@ -202,5 +206,5 @@ Sylber... don't think you'll get off easy.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0002.md)
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](../../volume%2010/chapters/10_18.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](Section0002.md)
 
