@@ -42,3 +42,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [66 Ambush](./chapters/section_0010.md)
 
 [67 Humans](./chapters/section_0011.md)
+
+[68 City Of People](./chapters/section_0012.md)

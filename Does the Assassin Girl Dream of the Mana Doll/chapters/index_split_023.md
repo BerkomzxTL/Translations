@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_022.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_022.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](index_split_024.md)
 
 
 
@@ -233,5 +233,5 @@ And what she will grasp next.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_022.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_022.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](index_split_024.md)
 

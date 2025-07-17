@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0010.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0010.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0012.md)
 
 
 
@@ -252,5 +252,5 @@ crude spear and muttered with a tearful face.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0010.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0010.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0012.md)
 

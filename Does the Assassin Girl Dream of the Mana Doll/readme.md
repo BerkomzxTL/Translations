@@ -69,3 +69,7 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 47: As King](./chapters/index_split_022.md)
 
 [Chapter 48: Necessary Cleanup](./chapters/index_split_023.md)
+
+[Chapter 49: What Was Grasped](./chapters/index_split_024.md)
+
+[Fanart 2](./chapters/index_split_025.md)
