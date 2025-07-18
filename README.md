@@ -10,7 +10,6 @@
 - Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
   - [https://ouo.io/FTI2Ylj](https://ouo.io/FTI2Ylj)
 - I'm Planning to be Killed by the Heroine
-  - Added missing chapters
   - [https://ouo.io/h3PFd7](https://ouo.io/h3PFd7)
 - I Became a Forest Witch Who Raises Dragons
   - [https://ouo.io/hr3GDsx](https://ouo.io/hr3GDsx)

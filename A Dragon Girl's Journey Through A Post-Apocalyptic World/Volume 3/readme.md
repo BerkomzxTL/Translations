@@ -31,7 +31,7 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 
 [61 Kei Truck](./chapters/section_0005.md)
 
-[62 The Signs of Summer](./chapters/section_0006.md)
+[62 The Signs Of Summer](./chapters/section_0006.md)
 
 [63 Ominous Presence](./chapters/section_0007.md)
 
@@ -44,3 +44,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [67 Humans](./chapters/section_0011.md)
 
 [68 City Of People](./chapters/section_0012.md)
+
+[69 Assault](./chapters/section_0013.md)
