@@ -46,3 +46,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [68 City Of People](./chapters/section_0012.md)
 
 [69 Assault](./chapters/section_0013.md)
+
+[70 Awakening](./chapters/section_0014.md)

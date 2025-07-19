@@ -73,3 +73,7 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 49: What Was Grasped](./chapters/index_split_024.md)
 
 [Fanart 2](./chapters/index_split_025.md)
+
+### Arc 3: The Assassin Girl and the Journeying Sky
+
+[Chapter 50: Trouble Strikes Suddenly](./chapters/index_split_026.md)
