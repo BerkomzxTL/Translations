@@ -48,3 +48,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [69 Assault](./chapters/section_0013.md)
 
 [70 Awakening](./chapters/section_0014.md)
+
+[71 Little Dragon](./chapters/section_0015.md)
