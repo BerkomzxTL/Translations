@@ -79,3 +79,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 50: Trouble Strikes Suddenly](./chapters/index_split_026.md)
 
 [Chapter 51: Confirmation and Countermeasures](./chapters/index_split_027.md)
+
+[Chapter 52: Her and Her Choice](./chapters/index_split_028.md)

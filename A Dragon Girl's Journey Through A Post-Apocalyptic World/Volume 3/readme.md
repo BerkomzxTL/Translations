@@ -54,3 +54,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [72 Dragon Person](./chapters/section_0016.md)
 
 [73 A Moment Of Peace](./chapters/section_0017.md)
+
+[74 New Equipment](./chapters/section_0018.md)
