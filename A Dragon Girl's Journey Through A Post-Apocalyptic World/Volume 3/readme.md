@@ -56,3 +56,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [73 A Moment Of Peace](./chapters/section_0017.md)
 
 [74 New Equipment](./chapters/section_0018.md)
+
+[75 To Tokyo](./chapters/section_0019.md)
