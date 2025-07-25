@@ -81,3 +81,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 51: Confirmation and Countermeasures](./chapters/index_split_027.md)
 
 [Chapter 52: Her and Her Choice](./chapters/index_split_028.md)
+
+[Chapter 53: What the Journey Reveals](./chapters/index_split_029.md)

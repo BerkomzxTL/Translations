@@ -58,3 +58,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [74 New Equipment](./chapters/section_0018.md)
 
 [75 To Tokyo](./chapters/section_0019.md)
+
+[76 City Of Ruins](./chapters/section_0020.md)
