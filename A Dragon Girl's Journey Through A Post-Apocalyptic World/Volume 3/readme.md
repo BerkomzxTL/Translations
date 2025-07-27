@@ -62,3 +62,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [76 City Of Ruins](./chapters/section_0020.md)
 
 [77 Raijū](./chapters/section_0021.md)
+
+[78 The Changing World](./chapters/section_0022.md)
