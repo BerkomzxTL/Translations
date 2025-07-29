@@ -85,3 +85,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 53: What the Journey Reveals](./chapters/index_split_029.md)
 
 [Chapter 54: Revisiting for the First Time](./chapters/index_split_030.md)
+
+[Chapter 55: In a Word](./chapters/index_split_031.md)

@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_029.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_029.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](index_split_031.md)
 
 
 
@@ -196,5 +196,5 @@ It's somehow difficult to say it directly.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_029.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_029.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](index_split_031.md)
 
