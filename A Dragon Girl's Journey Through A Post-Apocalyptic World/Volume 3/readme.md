@@ -70,3 +70,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [80 What Remains](./chapters/section_0024.md)
 
 [81 The Radio Tower](./chapters/section_0025.md)
+
+[82 A Visitor](./chapters/section_0026.md)

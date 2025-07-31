@@ -87,3 +87,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 54: Revisiting for the First Time](./chapters/index_split_030.md)
 
 [Chapter 55: In a Word](./chapters/index_split_031.md)
+
+[Chapter 56: Even as King](./chapters/index_split_032.md)
