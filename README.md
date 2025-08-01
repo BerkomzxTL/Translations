@@ -26,6 +26,8 @@ Discord: mddbxa
   - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
+- The Great Sword is not the Main Body!
+  - [https://ouo.io/Uv9e3A](https://ouo.io/Uv9e3A)
 - The Legend of the Fox Yokai of Jirisan
   - Light editing; standardized some names
   - [https://ouo.io/lCckt6](https://ouo.io/lCckt6)

@@ -72,3 +72,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [81 The Radio Tower](./chapters/section_0025.md)
 
 [82 A Visitor](./chapters/section_0026.md)
+
+[83 Unexpected Companion](./chapters/section_0027.md)
