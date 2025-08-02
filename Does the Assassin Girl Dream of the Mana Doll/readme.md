@@ -89,3 +89,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 55: In a Word](./chapters/index_split_031.md)
 
 [Chapter 56: Even as King](./chapters/index_split_032.md)
+
+[Chapter 57: A Thorn of Doubt](./chapters/index_split_033.md)
