@@ -76,3 +76,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [83 Unexpected Companion](./chapters/section_0027.md)
 
 [84 The Girl In The Sailor Uniform](./chapters/section_0028.md)
+
+[85 Anticipated Encounter](./chapters/section_0029.md)
