@@ -91,3 +91,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 56: Even as King](./chapters/index_split_032.md)
 
 [Chapter 57: A Thorn of Doubt](./chapters/index_split_033.md)
+
+[Chapter 58: A Regrettable Matter](./chapters/index_split_034.md)
