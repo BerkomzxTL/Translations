@@ -80,3 +80,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [85 Anticipated Encounter](./chapters/section_0029.md)
 
 [86 Respective Reasons](./chapters/section_0030.md)
+
+[87 New World](./chapters/section_0031.md)

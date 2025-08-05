@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0029.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0029.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0031.md)
 
 
 
@@ -176,5 +176,5 @@ explanation, softly whispered with a smile still on her face.
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0029.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](section_0029.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](section_0031.md)
 
