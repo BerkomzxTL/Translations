@@ -177,7 +177,7 @@ Even thinking that, this treatment makes her want to hold back.
 
 What is this treatment?
 
-Next time: Her and Her Choice
+Up next: Her and Her Choice
 
 Somehow, she understands it, but…
 

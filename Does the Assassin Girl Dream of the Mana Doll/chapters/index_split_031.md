@@ -192,7 +192,7 @@ The peak he ascended to.
 
 Still, there were things he couldn't let go of.
 
-Next time: Even as King
+Up next: Even as King
 
 Some things change, and some things don't.
 

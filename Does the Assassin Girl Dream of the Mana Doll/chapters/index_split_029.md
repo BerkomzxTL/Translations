@@ -176,7 +176,7 @@ The path once traversed now shows a different color.
 
 This is partly nature's doing, and partly attributable to the observer.
 
-Next time: Revisiting for the First Time
+Up next: Revisiting for the First Time
 
 And that's why it's irreplaceable.
 

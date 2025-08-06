@@ -93,3 +93,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 57: A Thorn of Doubt](./chapters/index_split_033.md)
 
 [Chapter 58: A Regrettable Matter](./chapters/index_split_034.md)
+
+[Chapter 59: By the Lakeside City of Quartz](./chapters/index_split_035.md)

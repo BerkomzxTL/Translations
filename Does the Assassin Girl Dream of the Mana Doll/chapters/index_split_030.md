@@ -190,7 +190,7 @@ trials.
 
 A common, yet special, existence.
 
-Next time: In a Word
+Up next: In a Word
 
 It's somehow difficult to say it directly.
 

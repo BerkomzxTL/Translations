@@ -183,7 +183,7 @@ What was that all about?
 
 And is it over?
 
-Next time: A Thorn of Doubt
+Up next: A Thorn of Doubt
 
 Even when something should be gone, a feeling of unease remains.
 

@@ -201,7 +201,7 @@ What happened can't be undone. So, it's time to think about what's next.
 
 Starting with understanding what occurred.
 
-Next time: Confirmation and Countermeasures
+Up next: Confirmation and Countermeasures
 
 Often, things just work out.
 

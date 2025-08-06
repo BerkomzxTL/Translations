@@ -171,7 +171,7 @@ Sometimes, it's best not to intervene.
 
 Discerning such moments is often crucial.
 
-Next time: A Regrettable Matter
+Up next: A Regrettable Matter
 
 Be careful not to make a mistake.
 

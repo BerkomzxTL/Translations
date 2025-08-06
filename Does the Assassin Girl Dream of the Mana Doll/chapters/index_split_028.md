@@ -160,7 +160,7 @@ Departures are always a fine line between sadness and anticipation.
 
 Along the way, familiar landscapes appear anew.
 
-Next time: What the Journey Reveals
+Up next: What the Journey Reveals
 
 It's common for the same path to look different.
 
