@@ -42,6 +42,13 @@ Discord: mddbxa
   - [https://ouo.io/9FZUP1E](https://ouo.io/9FZUP1E)
 
 
+- Other
+  - In short, novels that would probably land around a 3.5 on NU
+  - [https://ouo.io/k8dr89](https://ouo.io/k8dr89)
+    - The Saint's Journey
+    - \[TS\] I Became an Undying Lich in a Game
+
+
 ## Titles
 - A Dragon Girl's Journey Through A Post-Apocalyptic World
 - A Maiden's Unwanted Heroic Epic
