@@ -95,3 +95,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 58: A Regrettable Matter](./chapters/index_split_034.md)
 
 [Chapter 59: By the Lakeside City of Quartz](./chapters/index_split_035.md)
+
+[Chapter 60: The Painter and His Request](./chapters/index_split_036.md)

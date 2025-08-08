@@ -41,10 +41,12 @@ Discord: mddbxa
 - The Villainess Does Not Want to Die
   - [https://ouo.io/9FZUP1E](https://ouo.io/9FZUP1E)
 
+<br/>
 
 - Other
   - In short, novels that would probably land around a 3.5 on NU
   - [https://ouo.io/k8dr89](https://ouo.io/k8dr89)
+    - Isn't It Common Sense To Touch Tails?
     - The Saint's Journey
     - \[TS\] I Became an Undying Lich in a Game
 
