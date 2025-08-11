@@ -26,6 +26,8 @@ Discord: mddbxa
   - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
+- The Ever-Positive Angel Is in Charge of the Magical Girl's Mental Care
+  - [https://ouo.io/RB4ruRv](https://ouo.io/RB4ruRv)
 - The Great Sword is not the Main Body!
   - [https://ouo.io/Uv9e3A](https://ouo.io/Uv9e3A)
 - The Legend of the Fox Yokai of Jirisan
@@ -46,9 +48,9 @@ Discord: mddbxa
 - Other
   - In short, novels that would probably land around a 3.5 on NU
   - [https://ouo.io/k8dr89](https://ouo.io/k8dr89)
+    - \[TS\] I Became an Undying Lich in a Game
     - Isn't It Common Sense To Touch Tails?
     - The Saint's Journey
-    - \[TS\] I Became an Undying Lich in a Game
 
 
 ## Titles
