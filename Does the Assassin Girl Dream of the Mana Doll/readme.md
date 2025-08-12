@@ -99,3 +99,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 60: The Painter and His Request](./chapters/index_split_036.md)
 
 [Chapter 61: Who Are You?](./chapters/index_split_037.md)
+
+[Chapter 62: Tomorrow, Yesterday, and Today](./chapters/index_split_038.md)
