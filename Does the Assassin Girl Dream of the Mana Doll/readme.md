@@ -103,3 +103,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 62: Tomorrow, Yesterday, and Today](./chapters/index_split_038.md)
 
 [Chapter 63: The Weary Ways of This Transient World](./chapters/index_split_039.md)
+
+[Chapter 64: Drawing Time](./chapters/index_split_040.md)
