@@ -46,11 +46,12 @@ Discord: mddbxa
 <br/>
 
 - Other
-  - In short, novels that would probably land around a 3.5 on NU
+  - In short, novels that would probably land around a 3.5 or less on NU
   - [https://ouo.io/k8dr89](https://ouo.io/k8dr89)
     - I Became an Undying Lich in a Game
     - I Became the Saint's Master
     - Isn't It Common Sense To Touch Tails?
+    - The Former Assassin Becomes a Noble Lady
     - The Saint's Journey
 
 
