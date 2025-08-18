@@ -105,3 +105,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 63: The Weary Ways of This Transient World](./chapters/index_split_039.md)
 
 [Chapter 64: Drawing Time](./chapters/index_split_040.md)
+
+[Chapter 65: More Than Just A Drawing](./chapters/index_split_041.md)

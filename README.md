@@ -48,7 +48,8 @@ Discord: mddbxa
 - Other
   - In short, novels that would probably land around a 3.5 or less on NU
   - [https://ouo.io/k8dr89](https://ouo.io/k8dr89)
-    - I Became an Undying Lich in a Game
+    - [TS] I Became an Undying Lich in a Game
+    - A Strong and Powerful Wolf!
     - I Became the Saint's Master
     - Isn't It Common Sense To Touch Tails?
     - The Former Assassin Becomes a Noble Lady
