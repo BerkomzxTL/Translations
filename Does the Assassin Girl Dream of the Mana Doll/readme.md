@@ -107,3 +107,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 64: Drawing Time](./chapters/index_split_040.md)
 
 [Chapter 65: More Than Just A Drawing](./chapters/index_split_041.md)
+
+[Chapter 66: What Was Seen There](./chapters/index_split_042.md)
