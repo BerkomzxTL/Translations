@@ -111,3 +111,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 66: What Was Seen There](./chapters/index_split_042.md)
 
 [Chapter 67: The First Lesson](./chapters/index_split_043.md)
+
+[Chapter 68: In the Space of a Single Stroke](./chapters/index_split_044.md)
