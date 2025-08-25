@@ -50,6 +50,7 @@ Discord: mddbxa
   - [https://ouo.io/k8dr89](https://ouo.io/k8dr89)
     - [TS] I Became an Undying Lich in a Game
     - A Strong and Powerful Wolf!
+    - I Became a Potion-Selling Girl
     - I Became the Saint's Master
     - Isn't It Common Sense To Touch Tails?
     - The Former Assassin Becomes a Noble Lady

@@ -4,7 +4,7 @@
   
 Epilogue: \[Snow White of Thorns\]  
   
-Volume 10 (261-296+)
+Volume 10 (261-299+)
 
 _Author:_   _Harunohi Biyori_
 
@@ -19,78 +19,80 @@ _Translation: mddbxa_
 
 # Table of Contents
 
-[261 Snow White of Thorns](./chapters/section_0001.md)
+[261 Snow White of Thorns](./chapters/chapter0261.md)
 
-[262 Resurrection from the Underworld](./chapters/section_0002.md)
+[262 Resurrection](./chapters/chapter0262.md)
 
-[263 Departure](./chapters/section_0003.md)
+[263 Setting Off](./chapters/chapter0263.md)
 
-[264 Large-Scale Dungeon](./chapters/section_0004.md)
+[264 Large-Scale Dungeon](./chapters/chapter0264.md)
 
-[265 Daily Life in the Dungeon](./chapters/section_0005.md)
+[265 Daily Life in the Dungeon](./chapters/chapter0265.md)
 
-[266 Monster](./chapters/section_0006.md)
+[266 Monsters](./chapters/chapter0266.md)
 
-[267 The Will of the Dungeon](./chapters/section_0007.md)
+[267 The Will of the Dungeon](./chapters/chapter0267.md)
 
-[268 The Monster in the Deepest Part](./chapters/section_0008.md)
+[268 The Monster in the Deepest Part](./chapters/chapter0268.md)
 
-[269 Chimera](./chapters/section_0009.md)
+[269 Chimera](./chapters/chapter0269.md)
 
-[270 Unorthodox Plan](./chapters/section_0010.md)
+[270 Unconventional Strategy](./chapters/chapter0270.md)
 
-[271 Young Spirit](./chapters/section_0011.md)
+[271 Young Spirit](./chapters/chapter0271.md)
 
-[272 The Role of a Magician](./chapters/section_0012.md)
+[272 The Role of a Magician](./chapters/chapter0272.md)
 
-[273 Long Time No See, Royal Capital](./chapters/section_0013.md)
+[273 Long Time No See, Royal Capital](./chapters/chapter0273.md)
 
-[274 Daily Life in the Royal Capital](./chapters/section_0014.md)
+[274 Daily Life in the Royal Capital](./chapters/chapter0274.md)
 
-[275 Journey](./chapters/section_0015.md)
+[275 The Journey](./chapters/chapter0275.md)
 
-[276 Samantha Samantha](./chapters/section_0016.md)
+[276 Samantha Samantha](./chapters/chapter0276.md)
 
-[277 That Which Approaches the Viscount's Territory](./chapters/section_0017.md)
+[277 Approaching the Viscounty](./chapters/chapter0277.md)
 
-[278 Bandit Extermination](./chapters/section_0018.md)
+[278 Bandit Extermination](./chapters/chapter0278.md)
 
-[279 Secret to Longevity?](./chapters/section_0019.md)
+[279 The Secret to Longevity?](./chapters/chapter0279.md)
 
-[280 New Kindling](./chapters/section_0020.md)
+[280 A New Spark](./chapters/chapter0280.md)
 
-[281 The Way a Hero Should Be](./chapters/section_0021.md)
+[281 The Nature of a Hero](./chapters/chapter0281.md)
 
-[282 The Way of the Heart](./chapters/section_0022.md)
+[282 The Way of the Heart](./chapters/chapter0282.md)
 
-[283 Across Borders](./chapters/section_0023.md)
+[283 Crossing the Border](./chapters/chapter0283.md)
 
-[284 Reunion](./chapters/section_0024.md)
+[284 Encounter](./chapters/chapter0284.md)
 
-[285 My Hero](./chapters/section_0025.md)
+[285 My Hero](./chapters/chapter0285.md)
 
-[286 Holy Capital Farn](./chapters/section_0026.md)
+[286 Holy City Faan](./chapters/chapter0286.md)
 
-[287 A Hero's Reason](./chapters/section_0027.md)
+[287 The Hero's Reason](./chapters/chapter0287.md)
 
-[288 A Sneaky Person](./chapters/section_0028.md)
+[288 A Sly Person](./chapters/chapter0288.md)
 
-[289 Things to Encounter](./chapters/section_0029.md)
+[289 Things We Encounter](./chapters/chapter0289.md)
 
-[290 Dragon Hunting Grounds](./chapters/section_0030.md)
+[290 Dragon Hunting Grounds](./chapters/chapter0290.md)
 
-[291 Intentions](./chapters/section_0031.md)
+[291 Intentions](./chapters/chapter0291.md)
 
-[292 Killing Intent](./chapters/section_0032.md)
+[292 Killing Intent](./chapters/chapter0292.md)
 
-[293 Essence](./chapters/section_0033.md)
+[293 True Nature](./chapters/chapter0293.md)
 
-[294 Antagonism](./chapters/section_0034.md)
+[294 Antagonism](./chapters/chapter0294.md)
 
-[295 A Hero's Power](./chapters/section_0035.md)
+[295 The Hero's Power](./chapters/chapter0295.md)
 
-[296 For Whose Sake](./chapters/section_0036.md)
+[296 For Whose Sake?](./chapters/chapter0296.md)
 
-[297 Naivety and Resolve](./chapters/section_0037.md)
+[297 Naivety and Resolve](./chapters/chapter0297.md)
 
-[298 Reason for Resolve](./chapters/section_0038.md)
+[298 Reason for Resolve](./chapters/chapter0298.md)
+
+[299 The Hero's Power](./chapters/chapter0299.md)
