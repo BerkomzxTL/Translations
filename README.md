@@ -35,6 +35,8 @@ Discord: mddbxa
   - [https://ouo.io/lCckt6](https://ouo.io/lCckt6)
 - The Maid of the Cursed Princess
   - [https://ouo.io/y8KBarM](https://ouo.io/y8KBarM)
+- The Saint who breaks the Earthenware Pot
+  - [https://ouo.io/HZXzgg](https://ouo.io/HZXzgg)
 - The Society's Pet Daughter
   - Complete
   - [https://ouo.io/M7ccErR](https://ouo.io/M7ccErR)

@@ -117,3 +117,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 69: Do Black and White Make Grey?](./chapters/index_split_045.md)
 
 [Chapter 70: What to Put on The Brush](./chapters/index_split_046.md)
+
+[Chapter 71: Days Gone By](./chapters/index_split_047.md)
