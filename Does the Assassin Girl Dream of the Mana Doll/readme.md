@@ -20,7 +20,7 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 # Table of Contents
 
-### Arc 2: The Assassin Girl Sets Off on a Journey
+### Arc II: The Assassin Girl Sets Off on a Journey
 
 [Chapter 26: The Border Town of Azar](./chapters/index_split_000.md)
 
@@ -74,7 +74,7 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 [Fanart 2](./chapters/index_split_025.md)
 
-### Arc 3: The Assassin Girl and the Journeying Sky
+### Arc III: The Assassin Girl and the Journeying Sky
 
 [Chapter 50: Trouble Strikes Suddenly](./chapters/index_split_026.md)
 
