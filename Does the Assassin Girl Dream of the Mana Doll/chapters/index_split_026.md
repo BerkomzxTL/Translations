@@ -4,7 +4,7 @@
 
 ## Chapter 50: Trouble Strikes Suddenly
 
-**Arc 3: The Assassin Girl and the Journeying Sky**
+**Arc III: The Assassin Girl and the Journeying Sky**
 
 ------------------------------------------------------------------------
 

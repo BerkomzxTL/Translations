@@ -89,3 +89,5 @@ _Translation: mddbxa_
 [Side Story 12: Give Thanks to the Spirits!](./chapters/Section0035.md)
 
 [Side Story 13: Living the Politically Correct Life](./chapters/Section0036.md)
+
+[Side Story 14](./chapters/Section0037.md)
