@@ -119,3 +119,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 70: What to Put on The Brush](./chapters/index_split_046.md)
 
 [Chapter 71: Days Gone By](./chapters/index_split_047.md)
+
+[Chapter 72: Already Nostalgic Memories](./chapters/index_split_048.md)
