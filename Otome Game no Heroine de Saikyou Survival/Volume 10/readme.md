@@ -2,7 +2,7 @@
 
 # Otome Game no Heroine de Saikyou Survival  
   
-Epilogue: \[Snow White of Thorns\]  
+Afterstory: \[Snow White of Thorns\]  
   
 Volume 10 (261-299+)
 

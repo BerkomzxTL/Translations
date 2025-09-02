@@ -22,6 +22,7 @@ Discord: mddbxa
 - Otome Game no Heroine de Saikyou Survival
   - LN Volume 7 - [https://ouo.io/HbxADS](https://ouo.io/HbxADS)
   - LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
+  - LN Volume 9 - [https://ouo.io/Fy1wsbe](https://ouo.io/Fy1wsbe)
 - Reincarnated as the Narrow-Eyed Character in a Magical Girl Battle Story
   - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch

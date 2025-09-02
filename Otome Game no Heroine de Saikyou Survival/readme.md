@@ -14,9 +14,8 @@ _Tags: Action, Adventure, Fantasy_
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
-TN: These chapters are (much more) slipshod (than usual) but I threw something together to cover the (currently untranslated) WN chapters because I wanted to read this and didn't feel like waiting anymore. Who wants to wait 4-5 days for 1/5th of a sketchy tl of a chapter?
-
-The afterstory is ongoing. As the afterword at the end of chapter 260 mentions, there's been a new chapter uploaded at the start of each month, 1 per month. May keep up with those for a little while.
+TN:  
+The afterstory is ongoing. There's been a new chapter uploaded at the start of each month, 1 per month. May keep up with those for a little while.
 
 
 # Table of Contents
@@ -25,6 +24,10 @@ LN Volume 7 - [https://ouo.io/HbxADS](https://ouo.io/HbxADS)
 
 LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
 
-[Volume 9 (229-260)](Volume%209/readme.md)
+LN Volume 9 - [https://ouo.io/Fy1wsbe](https://ouo.io/Fy1wsbe)
 
-[Volume 10 (261-299)](Volume%2010/readme.md)
+[WN Volume 10 (261-299)](Volume%2010/readme.md)
+
+
+Some WN art from the author
+![](illustration_v9.jpg)
