@@ -121,3 +121,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 71: Days Gone By](./chapters/index_split_047.md)
 
 [Chapter 72: Already Nostalgic Memories](./chapters/index_split_048.md)
+
+[Chapter 73: A Human Morning](./chapters/index_split_049.md)
