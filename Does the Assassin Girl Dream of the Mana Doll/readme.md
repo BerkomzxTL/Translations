@@ -123,3 +123,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 72: Already Nostalgic Memories](./chapters/index_split_048.md)
 
 [Chapter 73: A Human Morning](./chapters/index_split_049.md)
+
+[Chapter 74: What Was Poured into That Brush](./chapters/index_split_050.md)
