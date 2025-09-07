@@ -125,3 +125,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 73: A Human Morning](./chapters/index_split_049.md)
 
 [Chapter 74: What Was Poured into That Brush](./chapters/index_split_050.md)
+
+[Chapter 75: And the World Revealed There](./chapters/index_split_051.md)
