@@ -127,3 +127,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 74: What Was Poured into That Brush](./chapters/index_split_050.md)
 
 [Chapter 75: And the World Revealed There](./chapters/index_split_051.md)
+
+[Chapter 76: A Beloved Night's Conversation](./chapters/index_split_052.md)

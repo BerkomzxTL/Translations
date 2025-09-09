@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](chapter0298.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](chapter0298.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](chapter0300.md)
 
 
 
@@ -294,5 +294,5 @@ Please look forward to them!
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](chapter0298.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](chapter0298.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](chapter0300.md)
 

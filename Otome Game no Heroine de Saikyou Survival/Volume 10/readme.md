@@ -96,3 +96,5 @@ _Translation: mddbxa_
 [298 Reason for Resolve](./chapters/chapter0298.md)
 
 [299 The Hero's Power](./chapters/chapter0299.md)
+
+[300 The Meaning of Life](./chapters/chapter0300.md)
