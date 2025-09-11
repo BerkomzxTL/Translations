@@ -129,3 +129,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 75: And the World Revealed There](./chapters/index_split_051.md)
 
 [Chapter 76: A Beloved Night's Conversation](./chapters/index_split_052.md)
+
+[Chapter 77: Under the Scrutiny of Time](./chapters/index_split_053.md)
