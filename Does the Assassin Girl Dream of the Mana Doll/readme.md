@@ -131,3 +131,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 76: A Beloved Night's Conversation](./chapters/index_split_052.md)
 
 [Chapter 77: Under the Scrutiny of Time](./chapters/index_split_053.md)
+
+[Chapter 78: Fleeting Days of Brilliance](./chapters/index_split_054.md)
