@@ -135,3 +135,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 78: Fleeting Days of Brilliance](./chapters/index_split_054.md)
 
 [Chapter 79: Wouldn't It Be Loverly?](./chapters/index_split_055.md)
+
+[Chapter 80: Unseen Form, Visible Truth](./chapters/index_split_056.md)
