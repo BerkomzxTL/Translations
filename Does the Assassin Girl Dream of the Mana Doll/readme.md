@@ -139,3 +139,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 80: Unseen Form, Visible Truth](./chapters/index_split_056.md)
 
 [Chapter 81: Forever From Here](./chapters/index_split_057.md)
+
+[Chapter 82: The Missing Eye of the Dragon](./chapters/index_split_058.md)
