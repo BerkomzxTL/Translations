@@ -141,3 +141,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 81: Forever From Here](./chapters/index_split_057.md)
 
 [Chapter 82: The Missing Eye of the Dragon](./chapters/index_split_058.md)
+
+[Chapter 83: A Bolt from the Blue](./chapters/index_split_059.md)

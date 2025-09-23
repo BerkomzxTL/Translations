@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_057.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_057.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](index_split_059.md)
 
 
 
@@ -289,11 +289,11 @@ painter](https://blog.kano.ac/archive/posts/2184_garyo-tensei-wo-kaku/).
 Zhang Sengyou was a Chinese painter commissioned to paint four dragons.
 He refused to draw the eyes as he claimed the dragons would fly out of
 the wall once he did. When people started calling him a liar, he drew
-eyes on two of the dragons, who then became real and flew away~
+eyes on two of the dragons, who then became real and flew away\\
 
 Shows them
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_057.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_057.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](index_split_059.md)
 
