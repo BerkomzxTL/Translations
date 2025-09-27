@@ -145,3 +145,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 83: A Bolt from the Blue](./chapters/index_split_059.md)
 
 [Chapter 84: How a Life Ends](./chapters/index_split_060.md)
+
+[Chapter 85: The Fate of the Painting](./chapters/index_split_061.md)
