@@ -147,3 +147,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 84: How a Life Ends](./chapters/index_split_060.md)
 
 [Chapter 85: The Fate of the Painting](./chapters/index_split_061.md)
+
+[Chapter 86: The Emotion of Goodbye](./chapters/index_split_062.md)
