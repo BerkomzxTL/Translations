@@ -151,3 +151,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 86: The Emotion of Goodbye](./chapters/index_split_062.md)
 
 [Chapter 87: A Place Worth Preserving](./chapters/index_split_063.md)
+
+[Chapter 88: The Truths Pulled From Falsehood](./chapters/index_split_064.md)
