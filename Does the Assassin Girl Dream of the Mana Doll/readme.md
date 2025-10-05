@@ -153,3 +153,5 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 87: A Place Worth Preserving](./chapters/index_split_063.md)
 
 [Chapter 88: The Truths Pulled From Falsehood](./chapters/index_split_064.md)
+
+[Chapter 89: One Man’s Rumors](./chapters/index_split_065.md)
