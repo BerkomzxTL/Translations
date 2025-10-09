@@ -167,4 +167,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 [Chapter 90: How to Tame Emotion](./chapters/index_split_066.md)
 
+[Chapter 91: Noble Etiquette](./chapters/index_split_067.md)
+
 </details>
