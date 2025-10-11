@@ -169,4 +169,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 [Chapter 91: Noble Etiquette](./chapters/index_split_067.md)
 
+[Chapter 92: Judgment to be Passed](./chapters/index_split_068.md)
+
 </details>
