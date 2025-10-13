@@ -2,9 +2,7 @@
 
 # Otome Game no Heroine de Saikyou Survival  
   
-Afterstory: \[Snow White of Thorns\]  
-  
-Volume 10 (261-299+)
+Chapters 261+
 
 _Author:_   _Harunohi Biyori_
 
@@ -16,8 +14,10 @@ _Translation: mddbxa_
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
 
-
 # Table of Contents
+
+<details open>
+<summary>Afterstory I: Snow White of Thorns</summary>
 
 [261 Snow White of Thorns](./chapters/chapter0261.md)
 
@@ -98,3 +98,5 @@ _Translation: mddbxa_
 [299 The Hero's Power](./chapters/chapter0299.md)
 
 [300 The Meaning of Life](./chapters/chapter0300.md)
+
+</details>

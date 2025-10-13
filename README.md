@@ -77,5 +77,5 @@ Discord: mddbxa
 - Liberation of the Demon Kingdom \~The Tale of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
 - Otome Game no Heroine de Saikyou Survival
   - LN volumes 7, 8
-  - Chapters 229-298
+  - WN Chapters 261+
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch

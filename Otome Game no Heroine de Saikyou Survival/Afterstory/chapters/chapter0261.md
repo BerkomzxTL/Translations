@@ -4,6 +4,8 @@
 
 ## 261 Snow White of Thorns
 
+**Afterstory I: Snow White of Thorns**
+
 The main story has concluded, so this will be the start of the
 afterstory.  
 

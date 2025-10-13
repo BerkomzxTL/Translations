@@ -26,7 +26,7 @@ LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
 
 LN Volume 9 - [https://ouo.io/Fy1wsbe](https://ouo.io/Fy1wsbe)
 
-[WN Volume 10 (261-299)](Volume%2010/readme.md)
+[WN Afterstories (261+)](Afterstory/readme.md)
 
 
 Some WN art from the author
