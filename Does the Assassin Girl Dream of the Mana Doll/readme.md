@@ -171,4 +171,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 [Chapter 92: Judgment to be Passed](./chapters/index_split_068.md)
 
+[Chapter 93: One Last Farewell](./chapters/index_split_069.md)
+
 </details>

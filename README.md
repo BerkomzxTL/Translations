@@ -41,6 +41,8 @@ Discord: mddbxa
 - The Society's Pet Daughter
   - Complete
   - [https://ouo.io/M7ccErR](https://ouo.io/M7ccErR)
+- The System Mistook Me for a Cat
+  - [https://ouo.io/5Uuqhx](https://ouo.io/5Uuqhx)
 - The Vampire Eldest Miss Thinks I Like Her
   - [https://ouo.io/MkHMuoM](https://ouo.io/MkHMuoM)
 - The Villainess Does Not Want to Die
