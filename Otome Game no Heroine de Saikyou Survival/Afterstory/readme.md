@@ -1,8 +1,8 @@
 # Metadata
 
 # Otome Game no Heroine de Saikyou Survival  
-  
-Chapters 261+
+
+Afterstories (Chapters 261+)
 
 _Author:_   _Harunohi Biyori_
 
@@ -100,3 +100,11 @@ _Translation: mddbxa_
 [300 The Meaning of Life](./chapters/chapter0300.md)
 
 </details>
+
+<details>
+<summary>Afterstory II: The Dragon Shrine Maiden</summary>
+
+[301 Epilogue and Prologue](./chapters/chapter0301.md)
+
+</details>
+

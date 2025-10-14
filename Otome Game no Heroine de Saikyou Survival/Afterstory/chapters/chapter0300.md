@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](chapter0299.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](chapter0299.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](chapter0301.md)
 
 
 
@@ -128,5 +128,5 @@ And so, the 10th volume, which includes the postscript, will be released on Octo
 It contains substantial additions from not just Snow's point of view, but Alia's as well, so even if you've been hesitant to pick up the books before, please give it a try if you have the chance\!
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](chapter0299.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](chapter0299.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](chapter0301.md)
 
