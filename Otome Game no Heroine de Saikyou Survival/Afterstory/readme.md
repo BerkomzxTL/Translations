@@ -16,7 +16,7 @@ _Translation: mddbxa_
 
 # Table of Contents
 
-<details open>
+<details>
 <summary>Afterstory I: Snow White of Thorns</summary>
 
 [261 Snow White of Thorns](./chapters/chapter0261.md)

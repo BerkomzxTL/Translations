@@ -173,4 +173,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 [Chapter 93: One Last Farewell](./chapters/index_split_069.md)
 
+[Chapter 94: The Final Stroke is Cast](./chapters/index_split_070.md)
+
 </details>

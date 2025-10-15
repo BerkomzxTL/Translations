@@ -10,7 +10,7 @@ Discord: mddbxa
   - Volumes 10, 11, 12, Side Stories
   - [https://ouo.io/0zduCvs](https://ouo.io/0zduCvs)
 - Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
-  - [https://ouo.io/FTI2Ylj](https://ouo.io/FTI2Ylj)
+  - [https://ouo.io/F2rUg6](https://ouo.io/F2rUg6)
 - I'm Planning to be Killed by the Heroine
   - [https://ouo.io/h3PFd7](https://ouo.io/h3PFd7)
 - I Became a Forest Witch Who Raises Dragons
@@ -18,11 +18,11 @@ Discord: mddbxa
 - I Have Become The Snow Maiden I Created
   - [https://ouo.io/wNde2oq](https://ouo.io/wNde2oq)
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
-  - [https://ouo.io/GVDBt6](https://ouo.io/GVDBt6)
+  - [https://ouo.io/fx25Re](https://ouo.io/fx25Re)
 - Otome Game no Heroine de Saikyou Survival
-  - LN Volume 7 - [https://ouo.io/HbxADS](https://ouo.io/HbxADS)
-  - LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
-  - LN Volume 9 - [https://ouo.io/Fy1wsbe](https://ouo.io/Fy1wsbe)
+  - LN Volume 7 - [https://ouo.io/gIMAVN](https://ouo.io/gIMAVN)
+  - LN Volume 8 - [https://ouo.io/tL0Qwl](https://ouo.io/tL0Qwl)
+  - LN Volume 9 - [https://ouo.io/MzXv2UM](https://ouo.io/MzXv2UM)
 - Reincarnated as the Narrow-Eyed Character in a Magical Girl Battle Story
   - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
