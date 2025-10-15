@@ -3,6 +3,8 @@ Discord: mddbxa
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 
 ## Formatted PDFS & Additional Translations
+- A Dragon Girl's Journey Through A Post-Apocalyptic World
+  - [https://ouo.io/Am4oZzc](https://ouo.io/Am4oZzc)
 - A Maiden's Unwanted Heroic Epic
   - Chapters 1-363
   - [https://ouo.io/mA50gY](https://ouo.io/mA50gY)
@@ -11,56 +13,24 @@ Discord: mddbxa
   - [https://ouo.io/0zduCvs](https://ouo.io/0zduCvs)
 - Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
   - [https://ouo.io/F2rUg6](https://ouo.io/F2rUg6)
-- I'm Planning to be Killed by the Heroine
-  - [https://ouo.io/h3PFd7](https://ouo.io/h3PFd7)
-- I Became a Forest Witch Who Raises Dragons
-  - [https://ouo.io/hr3GDsx](https://ouo.io/hr3GDsx)
-- I Have Become The Snow Maiden I Created
-  - [https://ouo.io/wNde2oq](https://ouo.io/wNde2oq)
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
   - [https://ouo.io/fx25Re](https://ouo.io/fx25Re)
 - Otome Game no Heroine de Saikyou Survival
   - LN Volume 7 - [https://ouo.io/gIMAVN](https://ouo.io/gIMAVN)
   - LN Volume 8 - [https://ouo.io/tL0Qwl](https://ouo.io/tL0Qwl)
   - LN Volume 9 - [https://ouo.io/MzXv2UM](https://ouo.io/MzXv2UM)
-- Reincarnated as the Narrow-Eyed Character in a Magical Girl Battle Story
-  - [https://ouo.io/4jWQvu](https://ouo.io/4jWQvu)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
-- The Ever-Positive Angel Is in Charge of the Magical Girl's Mental Care
-  - [https://ouo.io/RB4ruRv](https://ouo.io/RB4ruRv)
-- The Great Sword is not the Main Body!
-  - [https://ouo.io/Uv9e3A](https://ouo.io/Uv9e3A)
-- The Legend of the Fox Yokai of Jirisan
-  - Light editing; standardized some names
-  - [https://ouo.io/lCckt6](https://ouo.io/lCckt6)
-- The Maid of the Cursed Princess
-  - [https://ouo.io/y8KBarM](https://ouo.io/y8KBarM)
-- The Saint who breaks the Earthenware Pot
-  - [https://ouo.io/HZXzgg](https://ouo.io/HZXzgg)
-- The Society's Pet Daughter
-  - Complete
-  - [https://ouo.io/M7ccErR](https://ouo.io/M7ccErR)
 - The System Mistook Me for a Cat
   - [https://ouo.io/5Uuqhx](https://ouo.io/5Uuqhx)
 - The Vampire Eldest Miss Thinks I Like Her
   - [https://ouo.io/MkHMuoM](https://ouo.io/MkHMuoM)
-- The Villainess Does Not Want to Die
-  - [https://ouo.io/9FZUP1E](https://ouo.io/9FZUP1E)
 
 <br/>
 
-- Other
-  - In short, *most* of these would probably land around a 3.5 or less on NU
-  - I put a heart next to the ones I enjoyed a lot
+- Additional content and translations can be found here
   - [https://ouo.io/k8dr89](https://ouo.io/k8dr89)
-    - [TS] I Became an Undying Lich in a Game
-    - A Strong and Powerful Wolf! (♥)
-    - I Became a Potion-Selling Girl (♥)
-    - I Became the Saint's Master
-    - Isn't It Common Sense To Touch Tails?
-    - The Former Assassin Becomes a Noble Lady
-    - The Saint's Journey
+  - Last Updated: 2025-10-15
 
 
 ## Titles
@@ -76,6 +46,6 @@ Discord: mddbxa
 - Heartwarming Different World Reincarnation Days With Level Countertop, Item Carryover! I’m the Strongest Little Girl
 - Liberation of the Demon Kingdom \~The Tale of Two Girls\~ ※The Adventure of Two Girls Who Are Unrivaled With Swords and Magic
 - Otome Game no Heroine de Saikyou Survival
-  - LN volumes 7, 8
-  - WN Chapters 261+
+  - LN volumes 7, 8, 9
+  - WN Chapters 261-
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
