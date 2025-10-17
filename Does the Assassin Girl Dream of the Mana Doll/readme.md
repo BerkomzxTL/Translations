@@ -175,4 +175,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 [Chapter 94: The Final Stroke is Cast](./chapters/index_split_070.md)
 
+[Chapter 95: Eternal Homework](./chapters/index_split_071.md)
+
 </details>

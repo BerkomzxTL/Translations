@@ -14,6 +14,7 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 
 [\[Novel Updates\]](https://www.novelupdates.com/series/a-dragon-girls-journey-through-a-post-apocalyptic-world/)
 
+[List of formatted PDFS](../../README.md)
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
 

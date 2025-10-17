@@ -12,3 +12,5 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 [\[Source\]](https://ncode.syosetu.com/n4711in/)
 
 [\[Novel Updates\]](https://www.novelupdates.com/series/a-dragon-girls-journey-through-a-post-apocalyptic-world/)
+
+[List of formatted PDFS](../README.md)
