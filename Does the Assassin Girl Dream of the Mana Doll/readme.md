@@ -20,7 +20,7 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 # Table of Contents
 
-<details open>
+<details>
 <summary>Arc II</summary>
 
 ### The Assassin Girl Sets Off on a Journey
@@ -176,5 +176,14 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 94: The Final Stroke is Cast](./chapters/index_split_070.md)
 
 [Chapter 95: Eternal Homework](./chapters/index_split_071.md)
+
+</details>
+
+<details>
+<summary>Arc IV</summary>
+
+### The Assassin Girl and What She Desires
+
+[Chapter 96: What Lurks in the Shadows](./chapters/index_split_072.md)
 
 </details>
