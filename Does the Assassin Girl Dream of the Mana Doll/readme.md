@@ -186,4 +186,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 
 [Chapter 96: What Lurks in the Shadows](./chapters/index_split_072.md)
 
+[Chapter 97: Setting Off on a New Journey](./chapters/index_split_073.md)
+
 </details>
