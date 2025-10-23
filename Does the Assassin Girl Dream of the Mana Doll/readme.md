@@ -6,7 +6,7 @@ _Author:_ _鰯づくし_
 
 _Translation: mddbxa_
 
-_Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo Ai, Tragedy_
+_Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy, Yuri_
 
 [\[Source\]](https://ncode.syosetu.com/n1740fb/)
 
@@ -187,5 +187,7 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Shoujo 
 [Chapter 96: What Lurks in the Shadows](./chapters/index_split_072.md)
 
 [Chapter 97: Setting Off on a New Journey](./chapters/index_split_073.md)
+
+[Chapter 98: Sometimes, These Things Happen](./chapters/index_split_074.md)
 
 </details>
