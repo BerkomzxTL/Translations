@@ -192,4 +192,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 99: Like Pouring Water Down a Standing Board](./chapters/index_split_075.md)
 
+[Chapter 100: The Sales Pitch](./chapters/index_split_076.md)
+
 </details>
