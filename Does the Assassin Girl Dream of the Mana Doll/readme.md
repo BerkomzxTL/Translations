@@ -196,4 +196,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 101: Making Up for What’s Missing](./chapters/index_split_077.md)
 
+[Chapter 102: The Trading City of Cordoba](./chapters/index_split_078.md)
+
 </details>
