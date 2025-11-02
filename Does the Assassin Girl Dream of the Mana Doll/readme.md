@@ -198,4 +198,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 102: The Trading City of Cordoba](./chapters/index_split_078.md)
 
+[Chapter 103: An Encounter with the Exotic](./chapters/index_split_079.md)
+
 </details>
