@@ -200,4 +200,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 103: An Encounter with the Exotic](./chapters/index_split_079.md)
 
+[Chapter 104: After-Dinner Amusements](./chapters/index_split_080.md)
+
 </details>
