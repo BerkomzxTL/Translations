@@ -202,4 +202,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 104: After-Dinner Amusements](./chapters/index_split_080.md)
 
+[Chapter 104.5: Does the Mana Doll Dream of the Assassin Girl? \[R18+\]](./chapters/index_split_081.md)
+
 </details>
