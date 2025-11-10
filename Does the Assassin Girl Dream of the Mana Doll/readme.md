@@ -206,4 +206,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 105: A Winter’s Morning—Departure Day](./chapters/index_split_082.md)
 
+[Chapter 106: A Merchant's Spirit](./chapters/index_split_083.md)
+
 </details>
