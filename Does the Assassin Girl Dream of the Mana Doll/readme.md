@@ -208,4 +208,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 106: A Merchant's Spirit](./chapters/index_split_083.md)
 
+[Chapter 107: Preparedness](./chapters/index_split_084.md)
+
 </details>
