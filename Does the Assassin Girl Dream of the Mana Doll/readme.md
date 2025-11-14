@@ -210,4 +210,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 107: Preparedness](./chapters/index_split_084.md)
 
+[Chapter 108: Swordplay on the Plains](./chapters/index_split_085.md)
+
 </details>
