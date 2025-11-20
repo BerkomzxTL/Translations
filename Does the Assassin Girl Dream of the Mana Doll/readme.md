@@ -216,4 +216,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 110: Surprise Attack](./chapters/index_split_087.md)
 
+[Chapter 111: Foreign Affairs](./chapters/index_split_088.md)
+
 </details>
