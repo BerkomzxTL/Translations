@@ -222,4 +222,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 113: Like Flowing Water](./chapters/index_split_090.md)
 
+[Chapter 114: Intuited Blade](./chapters/index_split_091.md)
+
 </details>
