@@ -224,4 +224,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 114: Intuited Blade](./chapters/index_split_091.md)
 
+[Chapter 115: A Critical Hit](./chapters/index_split_092.md)
+
 </details>
