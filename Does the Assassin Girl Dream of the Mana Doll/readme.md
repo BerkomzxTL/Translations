@@ -226,4 +226,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 115: A Critical Hit](./chapters/index_split_092.md)
 
+[Chapter 116: It All Depends on How You Use It](./chapters/index_split_093.md)
+
 </details>
