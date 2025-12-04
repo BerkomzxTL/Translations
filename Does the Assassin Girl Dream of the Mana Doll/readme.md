@@ -230,4 +230,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 117: The Form of a Feeling](./chapters/index_split_094.md)
 
+[Chapter 118: The Morning After It Came to Fruition](./chapters/index_split_095.md)
+
 </details>

@@ -26,12 +26,6 @@ Discord: mddbxa
 - The Vampire Eldest Miss Thinks I Like Her
   - [https://ouo.io/MkHMuoM](https://ouo.io/MkHMuoM)
 
-<br/>
-
-- Additional content and translations can be found here
-  - [https://ouo.io/k8dr89](https://ouo.io/k8dr89)
-  - Last Updated: 2025-10-15
-
 
 ## Titles
 - A Dragon Girl's Journey Through A Post-Apocalyptic World
