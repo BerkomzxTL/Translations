@@ -232,4 +232,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 118: The Morning After It Came to Fruition](./chapters/index_split_095.md)
 
+[Chapter 119: An Unsettling Wind](./chapters/index_split_096.md)
+
 </details>
