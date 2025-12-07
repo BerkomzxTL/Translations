@@ -19,7 +19,7 @@ _Translation: mddbxa_
 I compiled chapters 1-363 here. I recommend reading at least 311-363 in the pdf version instead as it looks a lot nicer:  
 [List of formatted PDFS](../README.md)
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
 
 
 

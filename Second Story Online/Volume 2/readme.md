@@ -17,7 +17,7 @@ _Tags: Action, Adventure, Comedy, Fantasy, Sci-fi, Slice of Life_
 
 [List of formatted PDFS](../../README.md)
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
 
 
 

@@ -1,6 +1,6 @@
 Discord: mddbxa
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
 
 ## Formatted PDFS & Additional Translations
 - A Dragon Girl's Journey Through A Post-Apocalyptic World

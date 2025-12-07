@@ -11,7 +11,7 @@ _Translation: mddbxa_
 [\[Source\]](https://ncode.syosetu.com/n1391fj/)
 
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I2I117SQUE)
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
 
 
 # Table of Contents
