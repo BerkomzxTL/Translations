@@ -234,4 +234,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 119: An Unsettling Wind](./chapters/index_split_096.md)
 
+[Chapter 120: Crimson Rondo](./chapters/index_split_097.md)
+
 </details>
