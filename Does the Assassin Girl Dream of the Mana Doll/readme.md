@@ -236,4 +236,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 120: Crimson Rondo](./chapters/index_split_097.md)
 
+[Chapter 121: Cordor’s Grassland Wisteria](./chapters/index_split_098.md)
+
 </details>
