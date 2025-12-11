@@ -28,7 +28,7 @@ For those wondering how this hooks into pre-existing releases on NovelUpdates...
 
 [List of formatted PDFS](../../README.md)
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
+
 
 
 # Table of Contents

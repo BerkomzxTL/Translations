@@ -1,6 +1,7 @@
 Discord: mddbxa
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
+Feel free to leave suggestions. I get notifications on various platforms: github issues, discord, novelupdates... I'm very picky about what I read though, so you can check [here](https://www.novelupdates.com/viewlist/104961/) for the kind of novels I tend to gravitate towards. Roughly ordered by how much I liked them
+
 
 ## Formatted PDFS & Additional Translations
 - A Dragon Girl's Journey Through A Post-Apocalyptic World

@@ -14,7 +14,7 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [\[Chapters 1-25\]](https://femmefables.wordpress.com/does-the-assassin-girl-dream-of-the-mana-doll/)
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
+
 
 
 

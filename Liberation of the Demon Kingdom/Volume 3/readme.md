@@ -16,7 +16,7 @@ _Tags: Adventure, Fantasy, Slice of Life, Yuri_
 
 
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
+
 
 
 

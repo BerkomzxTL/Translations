@@ -16,7 +16,7 @@ _Tags: Action, Adventure, Mystery, Slice of Life, Supernatural_
 
 [List of formatted PDFS](../../README.md)
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/md550779)
+
 
 
 
