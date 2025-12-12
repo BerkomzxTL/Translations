@@ -1,4 +1,4 @@
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_097.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_097.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](index_split_099.md)
 
 
 
@@ -191,5 +191,5 @@ like ‘Lady’ or ‘Miss’ rather than Princess, but… :’)
 
 
 ---
-[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_097.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[TOC](../readme.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Prev](index_split_097.md)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Next](index_split_099.md)
 

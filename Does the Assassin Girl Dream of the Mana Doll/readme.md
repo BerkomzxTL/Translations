@@ -238,4 +238,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 121: Cordor’s Grassland Wisteria](./chapters/index_split_098.md)
 
+[Chapter 122: A Conversation that Blooms Like a Flower](./chapters/index_split_099.md)
+
 </details>
