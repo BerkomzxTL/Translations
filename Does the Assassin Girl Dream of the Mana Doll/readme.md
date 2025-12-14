@@ -240,4 +240,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 122: A Conversation that Blooms Like a Flower](./chapters/index_split_099.md)
 
+[Chapter 123: An Agonizing Interrogation](./chapters/index_split_100.md)
+
 </details>
