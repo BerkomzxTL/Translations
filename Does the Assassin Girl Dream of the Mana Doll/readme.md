@@ -242,4 +242,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 123: An Agonizing Interrogation](./chapters/index_split_100.md)
 
+[Chapter 124: Conspiracies, Machinations, Recklessness](./chapters/index_split_101.md)
+
 </details>
