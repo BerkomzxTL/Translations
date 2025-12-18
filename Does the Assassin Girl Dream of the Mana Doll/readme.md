@@ -244,4 +244,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 124: Conspiracies, Machinations, Recklessness](./chapters/index_split_101.md)
 
+[Chapter 125: The Presence of an Adult](./chapters/index_split_102.md)
+
 </details>

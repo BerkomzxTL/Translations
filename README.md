@@ -20,6 +20,7 @@ Feel free to leave suggestions. I get notifications on various platforms: github
   - LN Volume 7 - [https://ouo.io/gIMAVN](https://ouo.io/gIMAVN)
   - LN Volume 8 - [https://ouo.io/tL0Qwl](https://ouo.io/tL0Qwl)
   - LN Volume 9 - [https://ouo.io/MzXv2UM](https://ouo.io/MzXv2UM)
+  - LN Volume 10 - [https://ouo.io/vToQSb](https://ouo.io/vToQSb)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
 - The System Mistook Me for a Cat

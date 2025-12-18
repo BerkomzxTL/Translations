@@ -26,6 +26,8 @@ LN Volume 8 - [https://ouo.io/8YbxTB8](https://ouo.io/8YbxTB8)
 
 LN Volume 9 - [https://ouo.io/Fy1wsbe](https://ouo.io/Fy1wsbe)
 
+LN Volume 10 - [https://ouo.io/vToQSb](https://ouo.io/vToQSb)
+
 [WN Afterstories (261+)](Afterstory/readme.md)
 
 
