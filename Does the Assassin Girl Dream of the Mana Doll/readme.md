@@ -246,4 +246,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 125: The Presence of an Adult](./chapters/index_split_102.md)
 
+[Chapter 126: A Nomad's Prerogative](./chapters/index_split_103.md)
+
 </details>
