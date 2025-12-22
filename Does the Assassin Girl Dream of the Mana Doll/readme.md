@@ -248,4 +248,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 126: A Nomad's Prerogative](./chapters/index_split_103.md)
 
+[Chapter 127: By Way of Greeting](./chapters/index_split_104.md)
+
 </details>
