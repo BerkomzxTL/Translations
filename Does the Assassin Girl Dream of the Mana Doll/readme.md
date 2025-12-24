@@ -250,4 +250,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 127: By Way of Greeting](./chapters/index_split_104.md)
 
+[Chapter 128: Master and Apprentice Duet](./chapters/index_split_105.md)
+
 </details>
