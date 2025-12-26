@@ -252,4 +252,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 128: Master and Apprentice Duet](./chapters/index_split_105.md)
 
+[Chapter 129: Undulation](./chapters/index_split_106.md)
+
 </details>
