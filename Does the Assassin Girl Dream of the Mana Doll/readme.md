@@ -254,4 +254,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 129: Undulation](./chapters/index_split_106.md)
 
+[Chapter 130: The Capital of the Plains](./chapters/index_split_107.md)
+
 </details>
