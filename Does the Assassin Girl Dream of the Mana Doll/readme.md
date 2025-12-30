@@ -256,4 +256,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 130: The Capital of the Plains](./chapters/index_split_107.md)
 
+[Chapter 131: A Moment of Respite](./chapters/index_split_108.md)
+
 </details>
