@@ -258,4 +258,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 131: A Moment of Respite](./chapters/index_split_108.md)
 
+[Chapter 132: A Maiden's Preparations](./chapters/index_split_109.md)
+
 </details>
