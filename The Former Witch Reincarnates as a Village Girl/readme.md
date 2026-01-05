@@ -12,6 +12,10 @@ _Tags: Action, Adventure, Fantasy, Tragedy_
 
 [\[Novel Updates\]](https://www.novelupdates.com/series/the-former-witch-reincarnated-as-a-village-girl/)
 
+<br/>
+mddbxa Note:
+
+This will eventually be posted here as well, however I'm currently doing releases for this under the kat reading cafe group. You can read this as it comes out here: [https://katreadingarchive.me/series/the-former-witch-reincarnated-as-a-village-girl/](https://katreadingarchive.me/series/the-former-witch-reincarnated-as-a-village-girl/)
 
 
 # Table of Contents
