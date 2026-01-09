@@ -266,4 +266,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 135: The Banquet is in Full Swing](./chapters/index_split_112.md)
 
+[Chapter 136: And Then, the Two](./chapters/index_split_113.md)
+
 </details>
