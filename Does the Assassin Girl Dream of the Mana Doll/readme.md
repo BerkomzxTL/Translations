@@ -270,4 +270,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 137: A New Beginning](./chapters/index_split_114.md)
 
+[Chapter 138: Next Steps](./chapters/index_split_115.md)
+
 </details>
