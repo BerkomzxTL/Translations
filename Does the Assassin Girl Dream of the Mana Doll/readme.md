@@ -272,4 +272,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 138: Next Steps](./chapters/index_split_115.md)
 
+[Chapter 139: Sign of Blooming](./chapters/index_split_116.md)
+
 </details>
