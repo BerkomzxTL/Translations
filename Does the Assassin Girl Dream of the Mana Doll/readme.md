@@ -274,4 +274,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 139: Sign of Blooming](./chapters/index_split_116.md)
 
+[Chapter 140: Howl, Sword](./chapters/index_split_117.md)
+
 </details>
