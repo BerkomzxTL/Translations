@@ -276,4 +276,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 140: Howl, Sword](./chapters/index_split_117.md)
 
+[Chapter 141: Her Desired Future](./chapters/index_split_118.md)
+
 </details>
