@@ -278,4 +278,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 141: Her Desired Future](./chapters/index_split_118.md)
 
+[Chapter 142: Treasure Hunting](./chapters/index_split_119.md)
+
 </details>
