@@ -280,4 +280,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 142: Treasure Hunting](./chapters/index_split_119.md)
 
+[Chapter 143: To the Ruins](./chapters/index_split_120.md)
+
 </details>
