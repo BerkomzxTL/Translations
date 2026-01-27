@@ -284,4 +284,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 144: Road to the Depths](./chapters/index_split_121.md)
 
+[Chapter 145: What’s Left Behind](./chapters/index_split_122.md)
+
 </details>
