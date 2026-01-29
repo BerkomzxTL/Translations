@@ -286,4 +286,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 145: What’s Left Behind](./chapters/index_split_122.md)
 
+[Chapter 146: Absent-Minded](./chapters/index_split_123.md)
+
 </details>
