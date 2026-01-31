@@ -288,4 +288,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 146: Absent-Minded](./chapters/index_split_123.md)
 
+[Chapter 147: Message from the Past](./chapters/index_split_124.md)
+
 </details>
