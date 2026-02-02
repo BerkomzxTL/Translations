@@ -290,4 +290,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 147: Message from the Past](./chapters/index_split_124.md)
 
+[Chapter 148: Hand in Hand](./chapters/index_split_125.md)
+
 </details>
