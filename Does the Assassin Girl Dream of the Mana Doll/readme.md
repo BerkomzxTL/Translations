@@ -292,4 +292,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 148: Hand in Hand](./chapters/index_split_125.md)
 
+[Chapter 149: Light in the Labyrinth](./chapters/index_split_126.md)
+
 </details>
