@@ -294,4 +294,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 149: Light in the Labyrinth](./chapters/index_split_126.md)
 
+[Chapter 150: An Atypical Night](./chapters/index_split_127.md)
+
 </details>
