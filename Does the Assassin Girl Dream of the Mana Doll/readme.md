@@ -296,4 +296,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 150: An Atypical Night](./chapters/index_split_127.md)
 
+[Chapter 151: When Temptation Takes Control](./chapters/index_split_128.md)
+
 </details>
