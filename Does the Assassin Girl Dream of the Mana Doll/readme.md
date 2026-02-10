@@ -298,4 +298,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 151: When Temptation Takes Control](./chapters/index_split_128.md)
 
+[Chapter 152: A Still Distant Back](./chapters/index_split_129.md)
+
 </details>
