@@ -300,4 +300,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 152: A Still Distant Back](./chapters/index_split_129.md)
 
+[Chapter 153: The Day Before the Tournament](./chapters/index_split_130.md)
+
 </details>
