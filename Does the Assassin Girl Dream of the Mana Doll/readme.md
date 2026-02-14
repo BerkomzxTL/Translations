@@ -302,4 +302,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 153: The Day Before the Tournament](./chapters/index_split_130.md)
 
+[Chapter 154: Entangled Karma](./chapters/index_split_131.md)
+
 </details>
