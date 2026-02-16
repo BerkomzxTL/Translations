@@ -304,4 +304,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 154: Entangled Karma](./chapters/index_split_131.md)
 
+[Chapter 155: Beyond the Karma](./chapters/index_split_132.md)
+
 </details>
