@@ -306,4 +306,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 155: Beyond the Karma](./chapters/index_split_132.md)
 
+[Chapter 156: Sword Dance—Start](./chapters/index_split_133.md)
+
 </details>
