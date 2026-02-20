@@ -308,4 +308,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 156: Sword Dance—Start](./chapters/index_split_133.md)
 
+[Chapter 157: The Crucible of Fervor](./chapters/index_split_134.md)
+
 </details>
