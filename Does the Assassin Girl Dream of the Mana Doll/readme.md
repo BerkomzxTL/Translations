@@ -310,4 +310,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 157: The Crucible of Fervor](./chapters/index_split_134.md)
 
+[Chapter 158: The Remnants of Fervor](./chapters/index_split_135.md)
+
 </details>
