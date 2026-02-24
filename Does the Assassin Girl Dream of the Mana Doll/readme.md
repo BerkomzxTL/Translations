@@ -312,4 +312,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 158: The Remnants of Fervor](./chapters/index_split_135.md)
 
+[Chapter 159: Clash—Human vs. The Inhuman](./chapters/index_split_136.md)
+
 </details>
