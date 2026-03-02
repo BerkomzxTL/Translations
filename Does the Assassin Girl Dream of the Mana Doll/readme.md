@@ -318,4 +318,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 161: Flowing Water Sword Dance](./chapters/index_split_138.md)
 
+[Chapter 162: Sword Dance—Encore](./chapters/index_split_139.md)
+
 </details>
