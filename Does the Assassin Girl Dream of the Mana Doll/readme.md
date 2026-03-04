@@ -320,4 +320,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 162: Sword Dance—Encore](./chapters/index_split_139.md)
 
+[Chapter 163: Curtain Call](./chapters/index_split_140.md)
+
 </details>
