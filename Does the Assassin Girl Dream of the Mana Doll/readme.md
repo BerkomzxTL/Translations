@@ -326,4 +326,6 @@ _Tags: Action, Adventure, Fantasy, Martial Arts, Mystery, Psychological, Tragedy
 
 [Chapter 165: For Her, Kisses and Blessings](./chapters/index_split_142.md)
 
+[Chapter 166: One Day It Will Bloom](./chapters/index_split_143.md)
+
 </details>
