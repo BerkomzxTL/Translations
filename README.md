@@ -16,6 +16,9 @@ Feel free to leave suggestions. I get notifications on various platforms: github
   - [https://ouo.io/F2rUg6](https://ouo.io/F2rUg6)
 - I was Reincarnated as a Side Heroine in a Yuri Game, and with all my Power I will Protect my Favorite Character
   - [https://ouo.io/fx25Re](https://ouo.io/fx25Re)
+- I Will Never Submit to Miss Grim Reaper
+  - Seems no longer accessible, so here's my local copy (translation by Tangerine Translation)
+  - [https://ouo.io/WqcNR7](https://ouo.io/WqcNR7)
 - Otome Game no Heroine de Saikyou Survival
   - LN Volume 7 - [https://ouo.io/gIMAVN](https://ouo.io/gIMAVN)
   - LN Volume 8 - [https://ouo.io/tL0Qwl](https://ouo.io/tL0Qwl)
@@ -23,6 +26,8 @@ Feel free to leave suggestions. I get notifications on various platforms: github
   - LN Volume 10 - [https://ouo.io/vToQSb](https://ouo.io/vToQSb)
 - Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch
   - [https://ouo.io/MF5IfF](https://ouo.io/MF5IfF)
+- The Former Witch Reincarnates as a Village Girl
+  - [https://ouo.io/x84S8D](https://ouo.io/x84S8D)
 - The System Mistook Me for a Cat
   - [https://ouo.io/5Uuqhx](https://ouo.io/5Uuqhx)
 - The Vampire Eldest Miss Thinks I Like Her
