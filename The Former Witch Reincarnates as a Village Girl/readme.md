@@ -6,7 +6,7 @@ _Author:_ _Choco Curry_
 
 _Translation: mddbxa_
 
-_Tags: Action, Adventure, Fantasy, Tragedy_
+_Tags: Fantasy, Shoujo_
 
 [\[Source\]](https://ncode.syosetu.com/n4099dv/)
 
