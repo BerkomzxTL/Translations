@@ -132,3 +132,7 @@ I compiled chapters 1-363 here. I recommend reading at least 311-363 in the pdf 
 [Chapter 363: New Series! Maid Princess from Another World!](./chapters/Section0053.md)
 
 [Chapter 364: The Silhouette's Hammer](./chapters/Section0054.md)
+
+[Chapters 365-376: Alberan](https://github.com/LeweiXu/AMUHE/blob/main/translated_chapters/c365-376.md)
+
+[Chapter 377: Magical☆BeryーExtra Edition: The Tentacle in the Cage](./chapters/Section0067.md)

@@ -50,3 +50,4 @@ Feel free to leave suggestions. I get notifications on various platforms: github
   - LN volumes 7, 8, 9
   - WN Chapters 261-
 - [Second Story Online: Aiming To Become The World’s Number 1. Ideal Witch](./Second%20Story%20Online/readme.md)
+- [The Former Witch Reincarnates as a Village Girl](./The%20Former%20Witch%20Reincarnates%20as%20a%20Village%20Girl/readme.md)
